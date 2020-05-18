@@ -16,7 +16,9 @@
 </tr>
 
 
-
+<tr>
+    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/%E7%BD%91%E9%97%A8%E6%96%B0%E9%97%BB1.jpg"></td>
+ </tr>
 <tr><td colspan="2" align="left"><a href="https://xdihm.casa/?name=c1172180&key=sdxhftoyfkhpuaxy&from=gy">罕见！山东下“冠状病毒”的冰雹</a></td></tr>
 
 
