@@ -24,7 +24,6 @@
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1177852&key=xcyufvbtjvhwwrpc&from=gy2">川普：取消香港特惠待遇 波及所有领域</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1177896&key=xcyufvbtjvhwwrpc&from=gy2">川普：今日起终止与世界卫生组织WHO的关系</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1177899&key=xcyufvbtjvhwwrpc&from=gy2">川普: 美将撤销香港特殊待遇 制裁中共官员</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1177898&key=xcyufvbtjvhwwrpc&from=gy2">特朗普宣布取消香港特殊贸易地位 制裁中港官员</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1177865&key=xcyufvbtjvhwwrpc&from=gy2">财经冷眼：中美同放5大招  留学生再出国或30年后！（视频）</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1177879&key=xcyufvbtjvhwwrpc&from=gy2">川普宣布对中共政策重大转变 涉及五大领域</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1177819&key=xcyufvbtjvhwwrpc&from=gy2">石涛：中共通过港版国安法 美中摊牌时刻</a></td></tr>
