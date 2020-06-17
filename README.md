@@ -69,7 +69,7 @@
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1185875&key=xcyufvbtjvhwwrpc&from=gy2">下酸雨已不新鲜 美国开始下塑胶雨了</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1185853&key=xcyufvbtjvhwwrpc&from=gy2">【有冇搞错】49年以来最大洪灾 三峡扛得住吗？</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1185845&key=xcyufvbtjvhwwrpc&from=gy2">第二波疫情难控 分析：全面封锁北京赌注高</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1185929&key=xcyufvbtjvhwwrpc&from=gy2">中共发行万亿抗疫国债揭开序幕 首批1000亿国债周四招标</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://is.gd/3B709q">中共发行万亿抗疫国债揭开序幕 首批1000亿国债周四招标</a></td></tr>
 
  <tr>
    <td colspan="2" align=center><img src="https://github.com/gyoupiodf/im1/blob/master/jf-1.jpg"></td>
