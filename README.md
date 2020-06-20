@@ -3,12 +3,6 @@
 <img src="https://raw.githubusercontent.com/gfw-breaker/banned-news/master/scripts/img/1.png" width="260px"/> &nbsp; <img src="https://raw.githubusercontent.com/gfw-breaker/banned-news/master/scripts/img/2.png" width="260px"/> &nbsp; <img src="https://raw.githubusercontent.com/gfw-breaker/banned-news/master/scripts/img/3.png" width="260px"/>&nbsp;
  
  <table>
- 
-<tr>
-<td colspan="2" align=left>
-♡微信中无法打开的地区，请将本站网址https://github.com/fqtz/tq1 输入到浏览器中打开。 
- </td>
-</tr>
  <tr>
  <td colspan="2" align=left>
 ♡敬请及时收藏本站以免失连
@@ -18,7 +12,6 @@
 ♡全球头条，大陆直连，敬请传播给大陆亲友网友。
  </td>
 </tr>
-
 
 <tr>
     <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/%E7%BD%91%E9%97%A8%E6%96%B0%E9%97%BB1.jpg"></td>
