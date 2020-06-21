@@ -56,7 +56,7 @@
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1187689&key=xcyufvbtjvhwwrpc&from=gy2">山西一银行传资金断链被挤兑 公务员被逼存钱堵漏</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1187687&key=xcyufvbtjvhwwrpc&from=gy2">疫情难控？北京约谈8家医院及5区负责人</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1187695&key=xcyufvbtjvhwwrpc&from=gy2">新书揭中共重塑世界靠笼络西方菁英 出版突然受阻</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1187740&key=xcyufvbtjvhwwrpc&from=gy2">土卫六飞离土星速度比预测快百倍</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://github.com/pwgy/pw2">土卫六飞离土星速度比预测快百倍</a></td></tr>
 
 
  <tr>
