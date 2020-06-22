@@ -106,7 +106,8 @@
     <td colspan="2" align=center>
 <a href="https://xdihm.casa/oo.aspx?name=c816650&key=sdxhftoyfkhpuaxy&from=gy2&tag=9973110">◆老北京茶馆◆谈笑间体会深层思考</a><br/>
    </tr>
-
+</table>
+<table>
   <tr>
     <td colspan="3" align="center"><img src="https://cdn.jsdelivr.net/gh/opipe/up/oGate65.jpg"/></td>
   </tr>
@@ -129,7 +130,5 @@
     <td align="center"></td>
     <td align="center"><a href="https://raw.githubusercontent.com/opipe/up/master/oPipe.zip">环通电脑版</a></td>
   </tr>
-  <tr>
-    <td colspan="3" align="center"><img src="https://cdn.jsdelivr.net/gh/opipe/up/oGate640.jpg"/></td>
-  </tr>
+  
 </table>
