@@ -70,7 +70,7 @@
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1188095&key=xcyufvbtjvhwwrpc&from=gy2">纳瓦罗：从未听到川普请习近平助他连任</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1188093&key=xcyufvbtjvhwwrpc&from=gy2">贪污？山东临沂花费5600万建网络商城 却不存在</a></td></tr>
  <tr>
-   <td colspan="2" align=center><img src="https://github.com/gyoupiodf/im1/blob/master/jf-1.jpg"></td>
+   <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/jf-1.jpg"></td>
   </tr>
    <tr>
    <td colspan="2" align=center> 
