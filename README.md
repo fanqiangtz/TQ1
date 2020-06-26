@@ -1,5 +1,5 @@
 ## 📩请及时收藏本站 https://git.io/ynews 以免失连</a>
-# 墙外头条 2020年06月26日</a>
+## 墙外头条 2020年06月26日</a>
 
  <table>
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1189925&key=xcyufvbtjvhwwrpc&from=gy2">【睿眼看世界】粮食断供三个月 朝鲜发生大规模饥荒 中国粮荒会发生吗？</a></td></tr>
