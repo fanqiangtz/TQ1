@@ -1,18 +1,7 @@
+## <请及时收藏本站 https://git.io/ynewS 以免失连> </a>
+# 墙外头条 2020年06月26日</a>
 
  <table>
- <tr>
- <td colspan="2" align=left>
-♡敬请及时收藏本站 https://git.io/ynews 以免失连
- </td>
-   <tr>
-<td colspan="2" align=left>
-♡全球头条，大陆直连，敬请传播给大陆亲友网友。
- </td>
-</tr>
-
-<tr>
-    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/%E7%BD%91%E9%97%A8%E6%96%B0%E9%97%BB1.jpg"></td>
- </tr>
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1189925&key=xcyufvbtjvhwwrpc&from=gy2">【睿眼看世界】粮食断供三个月 朝鲜发生大规模饥荒 中国粮荒会发生吗？</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1189915&key=xcyufvbtjvhwwrpc&from=gy2">FBI局长:平均每10小时启动一起与中共政府有关的反间谍调查</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1189916&key=xcyufvbtjvhwwrpc&from=gy2">从毛泽东到习近平 中共一直视美国为战略对手</a></td></tr>
