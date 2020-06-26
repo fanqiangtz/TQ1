@@ -48,7 +48,7 @@
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1189959&key=xcyufvbtjvhwwrpc&from=gy2">【现场视频】货车侧翻起火 烧毁2万台iPhone</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1189947&key=xcyufvbtjvhwwrpc&from=gy2">金凰集团数十亿违约涉8家信托 质押黄金生变</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1189990&key=xcyufvbtjvhwwrpc&from=gy2">曾称4月摘口罩 中共专家又放话:北京疫情7月清零</a></td></tr>
-<tr><td colspan="2" align="left"><a href="hhttps://is.gd/3u541Q">【现场视频】疫情严重 出北京车辆多排长队</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://is.gd/3u541Q">【现场视频】疫情严重 出北京车辆多排长队</a></td></tr>
 
  <tr>
    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/jf-1.jpg"></td>
