@@ -1,4 +1,4 @@
-## <请及时收藏本站 https://git.io/ynewS 以免失连> </a>
+## 📩请及时收藏本站 https://git.io/ynewS 以免失连</a>
 # 墙外头条 2020年06月26日</a>
 
  <table>
