@@ -1,4 +1,8 @@
 ## 📩请及时收藏本站 https://git.io/ynews 以免失连</a>
+
+
+ ####  📩收藏本站： https://git.io/JfNvO 
+
 ## 墙外头条 2020年06月28日</a>
 
  <table>
@@ -47,6 +51,7 @@
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1190834&key=xcyufvbtjvhwwrpc&from=gy2">云鹤天：救命良方</a></td></tr>
 
 
+ #### 自救专区： [天灭中共非虚言，赶快自救保平安🍎 快快快 📩](https://github.com/pwgy/td/blob/master/README.md)
  <tr>
    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/jf-1.jpg"></td>
   </tr>
