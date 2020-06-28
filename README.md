@@ -1,5 +1,5 @@
 ## 📩请及时收藏本站 https://git.io/ynews 以免失连</a>
-## 墙外头条 2020年06月27日</a>
+## 墙外头条 2020年06月28日</a>
 
  <table>
 <tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1190829&key=xcyufvbtjvhwwrpc&from=gy2">陈破空：这个名女人突然病倒 对习近平打击很大？ 中印大战或一触即发</a></td></tr>
