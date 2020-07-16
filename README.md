@@ -1,55 +1,49 @@
 ## 📩请及时收藏本站 https://git.io/ynews 以免失连</a>
 
-## 墙外头条 2020年07月15日</a>
+## 墙外头条 2020年07月16日</a>
 
  <table>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198793&key=xcyufvbtjvhwwrpc&from=gy2">陈破空：王毅向美国求和？但中共的语言需要“翻译”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198797&key=xcyufvbtjvhwwrpc&from=gy2">美军方研发热核推进器</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198789&key=xcyufvbtjvhwwrpc&from=gy2">美国政府立场社论：中共对宗教信仰发动战争</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198778&key=xcyufvbtjvhwwrpc&from=gy2">黑龙江对岸反莫斯科大示威 或加剧远东离心倾向</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198791&key=xcyufvbtjvhwwrpc&from=gy2">程晓农：中美冷战对中国经济和民众生活的冲击</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198779&key=xcyufvbtjvhwwrpc&from=gy2">半壁江山泡水 中共高层悄然开启北戴河度假模式？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198788&key=xcyufvbtjvhwwrpc&from=gy2">河南洛阳整村被逼迁 村民扛煤气罐反抗</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198755&key=xcyufvbtjvhwwrpc&from=gy2">惊！长江武汉段水位恐形成「复式洪峰」 专家警告慎防溃堤</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198781&key=xcyufvbtjvhwwrpc&from=gy2">“黑命贵”杠上“所有人的命都贵” 川普大厦外两派人马冲突</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198767&key=xcyufvbtjvhwwrpc&from=gy2">《石涛聚焦》长江防洪最新策略—保武汉弃鄱阳</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198785&key=xcyufvbtjvhwwrpc&from=gy2">【直播】川普发表演讲：签署香港自治法</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198782&key=xcyufvbtjvhwwrpc&from=gy2">食品价格暴涨 中国百姓怨：天天涨价 收入却降</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198777&key=xcyufvbtjvhwwrpc&from=gy2">张菁：中共对等制裁美国官员多荒谬</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198808&key=xcyufvbtjvhwwrpc&from=gy2">王友群：阎丽梦博士逃亡美国五大冲击波</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198834&key=xcyufvbtjvhwwrpc&from=gy2">【快讯】川普签行政令 全面撤销香港特殊待遇</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198787&key=xcyufvbtjvhwwrpc&from=gy2">林郑威胁民主派初选 蓬佩奥严重关切</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198766&key=xcyufvbtjvhwwrpc&from=gy2">《石涛聚焦》突发 英国首相强森宣布：全面禁用华为5G设备 今年底生效</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198780&key=xcyufvbtjvhwwrpc&from=gy2">小粉红回国救父案再爆惊人内幕 检察官被当庭举报索贿30万</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198772&key=xcyufvbtjvhwwrpc&from=gy2">A股三大股指齐跌 外资流出170亿创纪录</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198807&key=xcyufvbtjvhwwrpc&from=gy2">袁斌：中国没因言获罪？中共睁眼说瞎话</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198796&key=xcyufvbtjvhwwrpc&from=gy2">中国贵州烧1600亿建山寨、烂尾建筑…陷「债务还不完」窘境</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198836&key=xcyufvbtjvhwwrpc&from=gy2">三峡在尽力？卫星照片惊见三峡大坝闸门全开排水泄洪</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198764&key=xcyufvbtjvhwwrpc&from=gy2">制衡中共 英拟部署最大新航母到亚太</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198775&key=xcyufvbtjvhwwrpc&from=gy2">美国哪些地区房产受中共病毒冲击最大？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198776&key=xcyufvbtjvhwwrpc&from=gy2">中共扬言制裁洛克希德·马丁 美国军火商：从不卖给你</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198770&key=xcyufvbtjvhwwrpc&from=gy2">美情报：中印冲突 中共禁为死亡的中国士兵举行葬礼</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198758&key=xcyufvbtjvhwwrpc&from=gy2">疫情激化社会矛盾 北京疫情区西红门爆警民冲突</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198786&key=xcyufvbtjvhwwrpc&from=gy2">时尚大V在上海街头阻止性侵 被咬掉耳朵</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198806&key=xcyufvbtjvhwwrpc&from=gy2">中国灾民涉水抢救习近平展板 蔡英文淌水视察灾情</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198805&key=xcyufvbtjvhwwrpc&from=gy2">河南再曝考题大规模泄露 被指官商勾结司空见惯</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198795&key=xcyufvbtjvhwwrpc&from=gy2">英航母要来了！「女王号」将部署印太 与美日联手对抗中共</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198848&key=xcyufvbtjvhwwrpc&from=gy2">历史真的很生猛 李清照遭遇家暴 为离婚向官府举报丈夫犯罪</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198829&key=xcyufvbtjvhwwrpc&from=gy2">香港民主派完成立法会初选 中共强硬回应</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198840&key=xcyufvbtjvhwwrpc&from=gy2">抖音又有麻烦 微信也被“拖下水”？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198792&key=xcyufvbtjvhwwrpc&from=gy2">陈光诚：思考“巧合”背后中共有意为之的目的</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198760&key=xcyufvbtjvhwwrpc&from=gy2">美国准备终止与香港引渡条约辣招将陆续出笼</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198765&key=xcyufvbtjvhwwrpc&from=gy2">张林：美国或将禁止微信、抖音</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198852&key=xcyufvbtjvhwwrpc&from=gy2">61万港人投票民主派初选 中共恐慌宣称“犯法”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198790&key=xcyufvbtjvhwwrpc&from=gy2">【禁闻】德国疫情或卷土重来 与中共关系引反思（下）</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198784&key=xcyufvbtjvhwwrpc&from=gy2">食品价格上涨11% 民怨：天天涨价 收入却降</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198849&key=xcyufvbtjvhwwrpc&from=gy2">《纽时》高级编辑辞职 严词谴责左翼横行报社</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198835&key=xcyufvbtjvhwwrpc&from=gy2">长江洪峰将持续十天？官方说法暗藏机关</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198857&key=xcyufvbtjvhwwrpc&from=gy2">川普签法律和行政令终止香港优惠待遇 “香港不再是香港”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198794&key=xcyufvbtjvhwwrpc&from=gy2">“黄金十年”提前落幕 中国成了一个危险的伙伴</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198841&key=xcyufvbtjvhwwrpc&from=gy2">敢言清华教授许章润被开除公职 评论称污名化手法更肮脏</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1198831&key=xcyufvbtjvhwwrpc&from=gy2">德国外交部网站介绍台湾页面 国旗栏现空白</a></td></tr>
-
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199248&key=xcyufvbtjvhwwrpc&from=gy2">李正宽：处末日火山 习近平面临魔戒致命诱惑</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199300&key=xcyufvbtjvhwwrpc&from=gy2">武大郎开店</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199246&key=xcyufvbtjvhwwrpc&from=gy2">资深教练：中国健身房将面临倒闭潮</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199313&key=xcyufvbtjvhwwrpc&from=gy2">宋美龄与江青她们眼中的丈夫</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199284&key=xcyufvbtjvhwwrpc&from=gy2">成都14岁女孩坠亡 生前遭公司老总强奸致孕</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199325&key=xcyufvbtjvhwwrpc&from=gy2">习近平严防政变 北京卫戍区司令再换人</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199273&key=xcyufvbtjvhwwrpc&from=gy2">优昙婆罗花频现台湾 三千年一开蕴藏天机</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199320&key=xcyufvbtjvhwwrpc&from=gy2">牺牲农村保城市 鄱阳湖“主动决堤”视频曝光</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199307&key=xcyufvbtjvhwwrpc&from=gy2">【萧茗看世界】就川普行政令 香港局势 南海台海局势采访袁弓夷</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199298&key=xcyufvbtjvhwwrpc&from=gy2">汉光夜间防空拦截作战 传有不明飞机在台海中线徘徊</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199299&key=xcyufvbtjvhwwrpc&from=gy2">蓬佩奥：港人难民「第二优先」未有定案 博尔顿：时为香港「最佳时刻」</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199262&key=xcyufvbtjvhwwrpc&from=gy2">【微视频】中共的经济内循环和国安法让富豪想逃</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199263&key=xcyufvbtjvhwwrpc&from=gy2">【禁闻】陆企大股东纷纷套现 中国股市背后推手是谁？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199297&key=xcyufvbtjvhwwrpc&from=gy2">立法会选举若泛民过半有违基本法？ 区诺轩宣布退出初选工作</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199282&key=xcyufvbtjvhwwrpc&from=gy2">唐山丰润区数十人遭厄运 都曾迫害法轮功</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199275&key=xcyufvbtjvhwwrpc&from=gy2">深圳“史上最严调控” 打击违法？ 分析：推升中国房价的两只黑手</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199265&key=xcyufvbtjvhwwrpc&from=gy2">希望之声：三峡水情监测突停内幕惊人 王维洛指长江洪水是人为</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199306&key=xcyufvbtjvhwwrpc&from=gy2">长江洪峰“复式推进”还是回落？中新网自打脸</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199309&key=xcyufvbtjvhwwrpc&from=gy2">批评中共南海行为如流氓 华府不排除制裁相关中共官员企业</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199318&key=xcyufvbtjvhwwrpc&from=gy2">【中国禁闻】7月15日完整版</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199328&key=xcyufvbtjvhwwrpc&from=gy2">蓬佩奥：特朗普第二任期最大挑战是中国共产党</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199330&key=xcyufvbtjvhwwrpc&from=gy2">更多大陆企业转移生产线 迁至东南亚国家</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199305&key=xcyufvbtjvhwwrpc&from=gy2">专家：香港成两种制度殊死搏斗的最前线</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199314&key=xcyufvbtjvhwwrpc&from=gy2">日本人遭洪水袭击 可获哪些救济补偿？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199254&key=xcyufvbtjvhwwrpc&from=gy2">田云：美英祭出反制大动作 中共心惊</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199267&key=xcyufvbtjvhwwrpc&from=gy2">超限战的又一“杰作”？ 惊传中共在研究把猪瘟传给人</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199312&key=xcyufvbtjvhwwrpc&from=gy2">立法会初选被「非法」 戴耀廷：只会引发更大抗争</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199285&key=xcyufvbtjvhwwrpc&from=gy2">世卫赴华调查病毒起源 蓬佩奥：帮中共洗白</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199253&key=xcyufvbtjvhwwrpc&from=gy2">红二代：别觉得可栽赃在川普身上 你栽不了</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199327&key=xcyufvbtjvhwwrpc&from=gy2">中国四大股指收跌 百股跌停 专家：牛市割韭菜手起刀落</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199269&key=xcyufvbtjvhwwrpc&from=gy2">川普支持者沉默不表态 川粉隐形势力在关键州集结</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199310&key=xcyufvbtjvhwwrpc&from=gy2">香港法院宣布黎智英等15名香港民主派人士案件押后再审 南区议会主席罗健熙被捕</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199271&key=xcyufvbtjvhwwrpc&from=gy2">蓬佩奥：将很快对中国科技公司和应用作决定</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199319&key=xcyufvbtjvhwwrpc&from=gy2">【禁闻】水涝肆虐下 看中共媒体的洪水美学</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199311&key=xcyufvbtjvhwwrpc&from=gy2">黄之锋等16名「抗争派」参选人表明反对「国安法」 目标取23直选议席</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199290&key=xcyufvbtjvhwwrpc&from=gy2">印中新一轮谈判结束 中共称取得进展 印方说尚需时间</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199288&key=xcyufvbtjvhwwrpc&from=gy2">香港抗争派回应立法会初选结果 黄之锋指如当局大规模DQ或引火自焚</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199239&key=xcyufvbtjvhwwrpc&from=gy2">【有冇搞错】病毒改变世界 香港的三种未来</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199281&key=xcyufvbtjvhwwrpc&from=gy2">传港证监会要求共享财务数据 微软、亚马逊、谷歌拒绝</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199329&key=xcyufvbtjvhwwrpc&from=gy2">美中第2阶段贸易谈判破局 川普称因疫情没兴趣谈</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://qeb.xfthy.casa/?name=c1199247&key=xcyufvbtjvhwwrpc&from=gy2">美再对华为祭新制裁 庞佩奥：将禁发部份员工签证</a></td></tr>
 
  <tr>
    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/jf-1.jpg"></td>
