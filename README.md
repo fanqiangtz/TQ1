@@ -1,7 +1,7 @@
 ## 📩请及时收藏本站 https://git.io/ynews 以免失连</a>
 ## 自救专区： [君子不立危樯之下，赶快自救保平安 ](https://github.com/pwgy/td/blob/master/README.md)
 
-## 墙外头条 2020年08月02日</a>
+## 墙外头条 2020年08月02日(每日更新）</a>
 
  <table>
 
