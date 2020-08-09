@@ -1,53 +1,50 @@
 ## 📩请及时收藏本站 https://git.io/ynews 以免失连</a>
 ## 自救专区： [君子不立危樯之下，赶快自救保平安 ](https://github.com/pwgy/td/blob/master/README.md)
 
-## 墙外头条 2020年08月08日(每日更新）</a>
+## 墙外头条 2020年08月09日(每日更新）</a>
 
  <table>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208885&key=krgexxuardvhjliu&from=gy2">《石涛聚焦》突发：美财长宣布 制裁林郑夏宝龙等11名中港官员——冻结在美所有资产</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208952&key=krgexxuardvhjliu&from=gy2">胡锦涛最伤心的一件往事34年未返乡之谜</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208950&key=krgexxuardvhjliu&from=gy2">湖南邵阳禁电动车上路 数千市民抗议追打交警</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208893&key=krgexxuardvhjliu&from=gy2">重磅！美国宣布制裁林郑月娥、夏宝龙等11名中共及香港官员</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208888&key=krgexxuardvhjliu&from=gy2">武汉医师爆内幕竟然藏暗语 白左抗疫:5千万新医院治79人 武肺有效药中共隐瞒左派斥责</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208936&key=krgexxuardvhjliu&from=gy2">川普禁微信 首次触动中共防火墙内的心脏</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208896&key=krgexxuardvhjliu&from=gy2">邵阳禁电动车上路 数千市民抗议追打交警</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208923&key=krgexxuardvhjliu&from=gy2">任志强的生死与习近平任意权力的展示</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208900&key=krgexxuardvhjliu&from=gy2">停止“反美”改唱“双赢” 中国五毛接上级指示失踪噤声</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208913&key=krgexxuardvhjliu&from=gy2">杨洁篪“坚定维护”中美关系 王毅“拒绝脱钩”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208951&key=krgexxuardvhjliu&from=gy2">华为高管承认：麒麟芯片9月15日后停产</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208953&key=krgexxuardvhjliu&from=gy2">美国情报机构：中共不希望特朗普连任 加紧扩大选前影响力</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208906&key=krgexxuardvhjliu&from=gy2">钟原：制裁港府要员和涉港高官的震撼</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208904&key=krgexxuardvhjliu&from=gy2">美国制裁11名中港官员 林郑和夏宝龙上榜</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208902&key=krgexxuardvhjliu&from=gy2">蓬佩奥：不会放任中共残酷压迫港人 制裁传出清楚信息</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208935&key=krgexxuardvhjliu&from=gy2">美中关系恶化 裴敏欣：习近平始料未及</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208908&key=krgexxuardvhjliu&from=gy2">川普砲火增强 批中共可能蓄意让病毒扩散</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208894&key=krgexxuardvhjliu&from=gy2">中港11高官犯何罪 美制裁公布护照住址</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208931&key=krgexxuardvhjliu&from=gy2">发布Tiktok竞争软件后 扎克伯格成世界第三富豪 身价超1000亿美金</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208928&key=krgexxuardvhjliu&from=gy2">美驻港澳总领馆：《国安法》产生寒蝉效应</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208937&key=krgexxuardvhjliu&from=gy2">美中防长通话 火药味很浓但都称“管控风险”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208930&key=krgexxuardvhjliu&from=gy2">近年首例银行破产！内蒙包商银行将启动破产清算</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208958&key=krgexxuardvhjliu&from=gy2">杨威：美中国防部长通话不同调的背后</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208886&key=krgexxuardvhjliu&from=gy2">老黑：川普禁微信抖音！腾讯啊、马化腾啊、抄袭大王也有今天啊！</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208942&key=krgexxuardvhjliu&from=gy2">特朗普欲杀微信 腾讯麻烦大了？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208948&key=krgexxuardvhjliu&from=gy2">大陪审团起诉唐娟 控两罪下周一庭审</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208825&key=krgexxuardvhjliu&from=gy2">王赫：从安谋中国闹剧谈三类中共科技间谍</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208938&key=krgexxuardvhjliu&from=gy2">清竹：对中共的仁慈就是对人类的犯罪</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208946&key=krgexxuardvhjliu&from=gy2">日媒再揭中共隐瞒疫情手段：“口头命令”和“暗语”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208905&key=krgexxuardvhjliu&from=gy2">华为高管承认：麒麟芯片9月15日后停产</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208945&key=krgexxuardvhjliu&from=gy2">黄河开始发威！陕西商洛市洛南县遭遇2003年以来最大洪灾</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208901&key=krgexxuardvhjliu&from=gy2">腾讯、字节跳动与公安合作「公开秘密」 网店、海外代购势受冲击</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208920&key=krgexxuardvhjliu&from=gy2">近5米长 英国海滩惊现巨型不明生物遗骸</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208932&key=krgexxuardvhjliu&from=gy2">“恐惧是真实的” -- 自我审查、举报文化进入澳洲校园</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208910&key=krgexxuardvhjliu&from=gy2">斯坦福学者找到方法预测黑天鹅事件</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208917&key=krgexxuardvhjliu&from=gy2">《石涛聚焦》川普8.6深夜签署2项行政命令“全面封杀抖音微信 含微信支付”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208883&key=krgexxuardvhjliu&from=gy2">中国软件如甜蜜陷阱 自由与专制交往多危险？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208927&key=krgexxuardvhjliu&from=gy2">乌鲁木齐：疫情蔓延  乡村实行封闭管理</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208892&key=krgexxuardvhjliu&from=gy2">中共四大国有银行内部测试“数字人民币”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208903&key=krgexxuardvhjliu&from=gy2">湖南女子举报乱倒垃圾 一家四口被砍(慎入)</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208916&key=krgexxuardvhjliu&from=gy2">健身教练谈中国健身房骗术</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208921&key=krgexxuardvhjliu&from=gy2">专家：反共潮高涨 63国无惧中共哀悼李登辉</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208897&key=krgexxuardvhjliu&from=gy2">大陆银行业降薪潮 员工：已经降无可降</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pekygiwz.xvhtf.cyou/?name=c1208929&key=krgexxuardvhjliu&from=gy2">字节跳动否认微软拟收购抖音海外版</a></td></tr>
+
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209331&key=krgexxuardvhjliu&from=gy2">【睿眼看世界】美国施压全面加速 习近平的最后一张牌很可能失效</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209314&key=krgexxuardvhjliu&from=gy2">李正宽：习李矛盾加剧 今年北戴河不同寻常</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209300&key=krgexxuardvhjliu&from=gy2">颜丹：港共高官无耻回应美国制裁说明了什么</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209309&key=krgexxuardvhjliu&from=gy2">中共趁疫情 将一家中美合资汽车厂国有化</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209320&key=krgexxuardvhjliu&from=gy2">骆惠宁称国外无分文 网民：很像当年薄熙来</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209323&key=krgexxuardvhjliu&from=gy2">川人：美制裁中共官员，中国人欢呼大快人心</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209332&key=krgexxuardvhjliu&from=gy2">少年上完军训课后猝死…死因为「热射病」 网一听全怒了</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209339&key=krgexxuardvhjliu&from=gy2">袁斌：挨了美国重拳的中共突然跌软说明什么？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209329&key=krgexxuardvhjliu&from=gy2">日国防大臣：中共若拟武力改变南海现状 需被逼付出高昂代价</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209322&key=krgexxuardvhjliu&from=gy2">周晓辉：中港高官被制裁 中南海高层难掩三忧</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209340&key=krgexxuardvhjliu&from=gy2">【脑洞vs黑洞】中美热战在即吗？中共将如何消亡？（第21集）</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209312&key=krgexxuardvhjliu&from=gy2">川普禁微信 Signal软件在中国下载量激增</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209287&key=krgexxuardvhjliu&from=gy2">中共拟修法禁止倒挂国旗 遭猛烈炮轰</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209316&key=krgexxuardvhjliu&from=gy2">西安600年历史明秦王府城牆突然坍塌 四人受伤</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209291&key=krgexxuardvhjliu&from=gy2">【纪元播报】传任志强坚持自辩 全揽下涉案人刑责</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209330&key=krgexxuardvhjliu&from=gy2">瑞士11月公投 或限制银行与侵犯人权者交易</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209307&key=krgexxuardvhjliu&from=gy2">Facebook率先表态会依法制裁11名中港官员</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209306&key=krgexxuardvhjliu&from=gy2">程晓农：当前中共应对冷战的三步棋</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209305&key=krgexxuardvhjliu&from=gy2">陈光诚：中共执政体轮番掠夺的又一波</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209299&key=krgexxuardvhjliu&from=gy2">【纪元播报】王赫：反制中共三绝招 川普或不战而胜</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209321&key=krgexxuardvhjliu&from=gy2">“五毛”急转弯 被勒令停止反美 改唱双赢</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209328&key=krgexxuardvhjliu&from=gy2">华为承认麒麟芯片成绝唱 高通据报游说美政府松绑禁令</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209302&key=krgexxuardvhjliu&from=gy2">美国卫生部长访台 他在内阁排名第几？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209338&key=krgexxuardvhjliu&from=gy2">华为高管：手机没芯片了 处于缺货状态</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209162&key=krgexxuardvhjliu&from=gy2">陆言：请看清中共的邪恶 坚决与中共决裂</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209290&key=krgexxuardvhjliu&from=gy2">贵州退休教授离奇死亡 90后公民遭秘密逮捕</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209313&key=krgexxuardvhjliu&from=gy2">中港11高官被列美SDN名单：等同与国际市场隔绝</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209288&key=krgexxuardvhjliu&from=gy2">湖南企业主被禁出国与妻儿团聚 美议员发声</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209298&key=krgexxuardvhjliu&from=gy2">王友群：秦城监狱喊“打倒法西斯”的中共高官</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209334&key=krgexxuardvhjliu&from=gy2">美国剑指抖音微信 阿里巴巴可能成为被禁靶子 股价下跌</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209304&key=krgexxuardvhjliu&from=gy2">中共趁疫情 将一家中美合资汽车厂国有化</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209292&key=krgexxuardvhjliu&from=gy2">美国冷战武器今派用场 鱼叉反舰导弹</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209324&key=krgexxuardvhjliu&from=gy2">吐为快：中共元素之毒</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209311&key=krgexxuardvhjliu&from=gy2">【图解】因何制裁 美公布中港11高官所为</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209308&key=krgexxuardvhjliu&from=gy2">46年锲而不捨！美退休警察逮到当年枪击他还越狱的逃犯</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209315&key=krgexxuardvhjliu&from=gy2">大陆商务部长坦承 中国产业外移压力加大</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209301&key=krgexxuardvhjliu&from=gy2">美国制裁令： 香港外资银行对客户关系网缜密调查 未雨绸缪</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209297&key=krgexxuardvhjliu&from=gy2">脸书禁止林郑等被制裁官员使用广告服务</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://fudofipw.xvhtf.cyou/?name=c1209326&key=krgexxuardvhjliu&from=gy2">投资者担忧盈利能力 中芯国际股价暴跌</a></td></tr>
+
  <tr>
    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/jf-1.jpg"></td>
   </tr>
