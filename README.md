@@ -48,8 +48,8 @@
 <tr><td colspan="2" align="left"><a href="https://atxphtqy.xvhtf.cyou/?name=c1210081&key=krgexxuardvhjliu&from=gy2">张林：白俄罗斯面临颜色革命</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://atxphtqy.xvhtf.cyou/?name=c1210069&key=krgexxuardvhjliu&from=gy2">疫情下北戴河会议冷清 对内对外均强调两个稳定</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://atxphtqy.xvhtf.cyou/?name=c1210066&key=krgexxuardvhjliu&from=gy2">梳理香港银行制裁政策 11名官员恐无所遁形</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://atxphtqy.xvhtf.cyou/?name=c1210060&key=krgexxuardvhjliu&from=gy2">香港大纪元多名记者疑被国安跟踪</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://atxphtqy.xvhtf.cyou/?name=c1210071&key=krgexxuardvhjliu&from=gy2">红二代群居香港 称研究如何在港实现共产主义 遭批挂羊头卖狗肉</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://bit.ly/3iqoMGf">香港大纪元多名记者疑被国安跟踪2</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://bit.ly/3iwC43M">红二代群居香港 称研究如何在港实现共产主义 遭批挂羊头卖狗肉</a></td></tr>
 
  <tr>
    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/jf-1.jpg"></td>
