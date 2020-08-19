@@ -1,46 +1,48 @@
 ## 📩请及时收藏本站 https://git.io/ynews 以免失连</a>
 ## 自救专区： [君子不立危樯之下，赶快自救保平安 ](https://github.com/pwgy/td/blob/master/README.md)
 
-## 墙外头条 2020年08月19日(每日更新）</a>
+## 墙外头条 2020年08月20日(每日更新）</a>
 
  <table>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213565&key=krgexxuardvhjliu&from=gy2">墓碑遭破坏出现灵异影像！ 母亲见后泣不成声：那是我女儿</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213541&key=krgexxuardvhjliu&from=gy2">专访蔡霞(下)：特朗普的优势和习近平的“四大缺陷”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213555&key=krgexxuardvhjliu&from=gy2">未名：反常的诱惑预示着什么？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213491&key=krgexxuardvhjliu&from=gy2">北戴河时间结束 江系折大将 粮食危机严重 半年后堪忧 崔永元中毒因这三大红人？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213563&key=krgexxuardvhjliu&from=gy2">网络疯传：萨达姆最后的日子</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213564&key=krgexxuardvhjliu&from=gy2">“人造卫星之父”赵九章缘何自杀？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213484&key=krgexxuardvhjliu&from=gy2">袭三峡大坝四川爆百年一遇 史上首度一级响应无救援哭声一片 长江5号洪水更大官称决战</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213552&key=krgexxuardvhjliu&from=gy2">四川洪水淹没乐山大佛脚趾 1949年来首次（视频）</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213540&key=krgexxuardvhjliu&from=gy2">习近平“亲自”现身安徽 洪灾以来首次探视灾民</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213520&key=krgexxuardvhjliu&from=gy2">【江峰时刻】休斯顿总领馆“全体”馆员包机回京 集体三等功在掩盖什么？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213545&key=krgexxuardvhjliu&from=gy2">美中离婚美台结婚？美国会承认“一中两府”吗？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213511&key=krgexxuardvhjliu&from=gy2">北戴河会议结束 习近平现身安徽 洪灾以来首次赴灾区</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213497&key=krgexxuardvhjliu&from=gy2">响应习“禁浪费”设举报机制 红卫兵再现上海？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213510&key=krgexxuardvhjliu&from=gy2">香港富豪表态潮 中共控制的两份媒体引关注</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213561&key=krgexxuardvhjliu&from=gy2">新西兰19岁水电工靠自己买下51万美元屋 疯狂存钱每餐只花1美元</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213544&key=krgexxuardvhjliu&from=gy2">台湾驻索马里兰代表处揭牌 “台湾”命名意义重大</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213530&key=krgexxuardvhjliu&from=gy2">北京人权人士张宝成案开庭 好友被拒旁听</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213529&key=krgexxuardvhjliu&from=gy2">科学家通过复杂计算发现:宇宙是无始无终的循环</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213502&key=krgexxuardvhjliu&from=gy2">清竹：你知道吗？美中战争早已打响</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213479&key=krgexxuardvhjliu&from=gy2">香港富豪表态潮 中共控制的两份媒体引关注</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213518&key=krgexxuardvhjliu&from=gy2">【禁闻】推人民币国际化防美国制裁 专家：空想</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213569&key=krgexxuardvhjliu&from=gy2">【薇羽看世间】北戴河“军权”之争</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213562&key=krgexxuardvhjliu&from=gy2">长江5号洪水来势凶猛！重庆水位创今年记录！三峡开启9孔创纪录泄洪！</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213566&key=krgexxuardvhjliu&from=gy2">无辜的孔子</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213512&key=krgexxuardvhjliu&from=gy2">川普：奥巴马政府为美国史上腐败之最 非法监听是叛国行为</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213527&key=krgexxuardvhjliu&from=gy2">少女染疫痊癒却现幻觉 母哭诉：像变另一个人</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213542&key=krgexxuardvhjliu&from=gy2">欲推动中国民主 青宪会成员家长被谈话</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213482&key=krgexxuardvhjliu&from=gy2">应对粮食危机第一刀？中粮集团总会计师骆家駹被查</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213494&key=krgexxuardvhjliu&from=gy2">粮荒热议 中共浮夸虚荣对外大撒币 中国似正重复60年前的历史</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213481&key=krgexxuardvhjliu&from=gy2">上海副市长兼公安局长龚道安落马</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213526&key=krgexxuardvhjliu&from=gy2">他们住在烂尾楼</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213573&key=krgexxuardvhjliu&from=gy2">【禁闻】长江5号洪水过境 重庆朝天门门洞全没入水中</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213543&key=krgexxuardvhjliu&from=gy2">涉“宣扬恐怖主义”张宝成受审 律师：控方证据乏力</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213509&key=krgexxuardvhjliu&from=gy2">经济脆弱 大陆20城房租连跌4个月 租客大减</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213490&key=krgexxuardvhjliu&from=gy2">【有冇搞错】美专家预测明年1月中共攻台</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213492&key=krgexxuardvhjliu&from=gy2">中共公安系统再地震 今年第三位高官上海公安局长被抓</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pobiboqh.xvhtf.cyou/?name=c1213558&key=krgexxuardvhjliu&from=gy2">一次可下数百弹雨 中共威胁以「天雷500」摧毁机场</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213965&key=krgexxuardvhjliu&from=gy2">憋疯了！武汉泳池派对3000人“肉贴肉”震惊世界</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213947&key=krgexxuardvhjliu&from=gy2">【微视频】不存在的北戴河会议 做梦的废习保党</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213998&key=krgexxuardvhjliu&from=gy2">强国攻台「利器」成为焦点</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1214002&key=krgexxuardvhjliu&from=gy2">争夺国际话语权 中共改用疫苗为武器？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213961&key=krgexxuardvhjliu&from=gy2">姚诚：军事打击中共是不二选择的当务之急</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1214001&key=krgexxuardvhjliu&from=gy2">中共核潜艇进出地下洞库 卫星照罕见曝光</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1214004&key=krgexxuardvhjliu&from=gy2">三峡还撑得住吗？入库流量再创纪录 开启11孔创纪录泄洪！</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213995&key=krgexxuardvhjliu&from=gy2">川渝百年一遇洪灾触目惊心 习近平却到安徽作秀</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213994&key=krgexxuardvhjliu&from=gy2">央视：武统台湾「首战即终战」 蔡英文：破坏稳定国际不接受</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1214007&key=krgexxuardvhjliu&from=gy2">民调称川普为“美国最后的希望” 80% 英快报读者望川普大选获胜</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1214008&key=krgexxuardvhjliu&from=gy2">伍凡:中共鼓励大学生参军 党卫军或变倒共者</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213942&key=krgexxuardvhjliu&from=gy2">时事大家谈：北戴河会议后 习近平调整对美策略？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1214005&key=krgexxuardvhjliu&from=gy2">豆腐渣工程？四川宜宾路面突然塌陷 21辆车瞬间被卷入巨坑</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213900&key=krgexxuardvhjliu&from=gy2">大陆山东国保警察退党记</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213940&key=krgexxuardvhjliu&from=gy2">习近平安徽考察洪灾 地方官派公安扮群众相迎</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213996&key=krgexxuardvhjliu&from=gy2">特朗普：是他决定推迟与中国贸易谈判 指甲骨文有能力收购TikTok</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213997&key=krgexxuardvhjliu&from=gy2">强国晶片技术仍落后国际7代以上？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213968&key=krgexxuardvhjliu&from=gy2">民主党党代会第二天 谈外交为何不提中国？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213925&key=krgexxuardvhjliu&from=gy2">张林：中共强推数字货币 要把中国彻底监狱化</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213963&key=krgexxuardvhjliu&from=gy2">美国务院宣布暂停或终止与香港三项双边协议的声明(全文翻译)</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213977&key=krgexxuardvhjliu&from=gy2">【禁闻】创记录洪水来袭 三峡大坝开11孔泄洪</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213966&key=krgexxuardvhjliu&from=gy2">从太空中才看得到的非洲奇观──撒哈拉之眼</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213946&key=krgexxuardvhjliu&from=gy2">美国务院通知香港 暂停或终止三项双边协议</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1214006&key=krgexxuardvhjliu&from=gy2">四川洪灾 华为合作企业多晶硅工厂停产</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213964&key=krgexxuardvhjliu&from=gy2">美握晶片制造关键 华为瘫了</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213920&key=krgexxuardvhjliu&from=gy2">【有冇搞错】中国数字货币是个什么东西？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213967&key=krgexxuardvhjliu&from=gy2">陨石中发现比钻石还坚硬的物体</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213950&key=krgexxuardvhjliu&from=gy2">台湾佛法师圆寂后“入定”28天后才有死亡特征</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213921&key=krgexxuardvhjliu&from=gy2">中共出书要党员带头过紧日子 网民嘲讽</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213975&key=krgexxuardvhjliu&from=gy2">8月19日维权动态</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213939&key=krgexxuardvhjliu&from=gy2">美中决定让两国之间航班再增加一倍</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213938&key=krgexxuardvhjliu&from=gy2">厄瓜多尔军方：大批中国渔船关闭卫星定位以掩饰行踪</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213952&key=krgexxuardvhjliu&from=gy2">全球产业链格局变化加速！苹果供应商撤离中国 为美中脱钩作准备</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213960&key=krgexxuardvhjliu&from=gy2">【禁闻】美国制裁华为 全球“净网”运动剑指中共</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1214003&key=krgexxuardvhjliu&from=gy2">洪灾后中共仍称早稻“增产” 此前连续7年减产</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213923&key=krgexxuardvhjliu&from=gy2">组图：长春法轮功学员纽约中领馆抗议 多国响应</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213987&key=krgexxuardvhjliu&from=gy2">又一政法高官落马 “刮骨疗毒”整风为哪般？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213983&key=krgexxuardvhjliu&from=gy2">卫星照片罕见曝光：中共核动力潜艇出入海南基地</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://zrmplbjj.xvhtf.cyou/?name=c1213926&key=krgexxuardvhjliu&from=gy2">三峡洪峰 四川洪水淹乐山大佛脚趾</a></td></tr>
 
  <tr>
    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/jf-1.jpg"></td>
