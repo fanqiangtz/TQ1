@@ -39,7 +39,7 @@
 <tr><td colspan="2" align="left"><a href="https://ufyjgnzb.xvhtf.cyou/?name=c1216019&key=krgexxuardvhjliu&from=gy2">又杠上了！川普：邮筒是个大骗局且未经防疫消毒</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://ufyjgnzb.xvhtf.cyou/?name=c1216042&key=krgexxuardvhjliu&from=gy2">远洋渔工街头随机斩杀途人致2死1伤 疑遭残酷压榨令精神崩溃</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://ufyjgnzb.xvhtf.cyou/?name=c1216016&key=krgexxuardvhjliu&from=gy2">法国查中国可疑种子 法网友向中使馆讨解释</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ufyjgnzb.xvhtf.cyou/?name=c1216024&key=krgexxuardvhjliu&from=gy2">中共四大海域同步军演 专家：虚张声势</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://u.nu/-8go1">中共四大海域同步军演 专家：虚张声势</a></td></tr>
 
  <tr>
    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/jf-1.jpg"></td>
