@@ -1,42 +1,47 @@
 ## 📩请及时收藏本站 https://git.io/ynews 以免失连</a>
 ## 自救专区： [君子不立危樯之下，赶快自救保平安 ](https://github.com/pwgy/td/blob/master/README.md)
 
-## 墙外头条 2020年08月30日(每日更新）</a>
+## 墙外头条 2020年08月31日(每日更新）</a>
 
  <table>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218211&key=krgexxuardvhjliu&from=gy2">习近平成敌人？朝鲜下杀无赦令 中共打破全球科学所有规范 中国最暴利血腥行业大跃进</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218239&key=krgexxuardvhjliu&from=gy2">罕见！澳洲议员点名怒轰习近平 执掌世界最完备的极权政权</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218253&key=krgexxuardvhjliu&from=gy2">安倍因病辞职 专家惊爆：与美联手准备对中共开战</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218236&key=krgexxuardvhjliu&from=gy2">想处理掉旧电脑和旧手机？如何避免犯大错</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218242&key=krgexxuardvhjliu&from=gy2">芯片国产梦碎 中国唯一7纳米光刻机被抵押</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218258&key=krgexxuardvhjliu&from=gy2">中国面临几十年来最严重的蝗灾</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218208&key=krgexxuardvhjliu&from=gy2">【拍案惊奇】史上最强炸弹曝光！中共导弹提前坠落？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218244&key=krgexxuardvhjliu&from=gy2">王友群：天要灭中共 谁将被押上审判台？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218245&key=krgexxuardvhjliu&from=gy2">【禁闻】中石油密件曝光: 中共海外党组织转入地下</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218222&key=krgexxuardvhjliu&from=gy2">七招帮你检查和改善家中Wi-Fi速度</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218250&key=krgexxuardvhjliu&from=gy2">张菁：香港通识教育为何成中共大噩梦？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218257&key=krgexxuardvhjliu&from=gy2">华为员工信心动摇 担心会被裁员</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218254&key=krgexxuardvhjliu&from=gy2">台湾不让了！吴钊燮曝国军惊人战力：亚洲最大F16战机群</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218255&key=krgexxuardvhjliu&from=gy2">妻与姊夫有染 镇江男杀10岁外甥报复</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218212&key=krgexxuardvhjliu&from=gy2">内幕：强关P2P平台 中共维稳手段曝光</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218262&key=krgexxuardvhjliu&from=gy2">【禁闻】8月30日维权动态</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218264&key=krgexxuardvhjliu&from=gy2">【禁闻】武汉千亿芯片生产线 面临“烂尾”风险</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218220&key=krgexxuardvhjliu&from=gy2">厉害国楼梯消失酒店坍塌  网造反!胡锡进华春莹翻车 猜不到?国际学术为何政审?</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218237&key=krgexxuardvhjliu&from=gy2">美警“跪杀”黑人：涉案前警员指事主死于毒品作用 要求撤控</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218248&key=krgexxuardvhjliu&from=gy2">中国整治吃播频道 主播爆解雇与离职潮</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218241&key=krgexxuardvhjliu&from=gy2">中共出新规 TikTok在美出售恐受阻</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218256&key=krgexxuardvhjliu&from=gy2">菅义伟将竞选自民党总裁 成为接任安倍首相的热门人选</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218240&key=krgexxuardvhjliu&from=gy2">赵立坚“铜墙铁壁”之说  网路骂声如潮</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218213&key=krgexxuardvhjliu&from=gy2">欧洲重申人权关切 法媒：王毅拉拢之行失败</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218232&key=krgexxuardvhjliu&from=gy2">疫苗危机 沪专家:疫苗反应可致中共肺炎加重</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218233&key=krgexxuardvhjliu&from=gy2">最强Apple分析师：华为最坏情况是退出手机市场</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218230&key=krgexxuardvhjliu&from=gy2">美中军事角力升级 专家：习近平顾忌一事 不会开战</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218228&key=krgexxuardvhjliu&from=gy2">【欺世大观】江上青是江泽民的死虎皮</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218265&key=krgexxuardvhjliu&from=gy2">新竹风筝节登场！3岁女童遭捲上天空狂甩 有惊无险</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218263&key=krgexxuardvhjliu&from=gy2">曾训斥“吹哨人” 蔡莉被免职 相关消息遭网络禁言</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218225&key=krgexxuardvhjliu&from=gy2">王毅抵柏林前 德议员警告本国外长:中国已经丧失了“成为值得信赖之伙伴的资格”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218231&key=krgexxuardvhjliu&from=gy2">著名作家：民主党鼓励街头骚乱致民调不利 欲嫁祸川普无济于事</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218216&key=krgexxuardvhjliu&from=gy2">疫苗危机 沪专家:疫苗反应可致中共肺炎加重</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218215&key=krgexxuardvhjliu&from=gy2">北京市前政法委常务副书记李伟被查</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218223&key=krgexxuardvhjliu&from=gy2">中国四大银行盈利跌幅10年最差 资产质素急速恶化</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218261&key=krgexxuardvhjliu&from=gy2">A股二十家公司上半年亏十亿 “两桶油”领亏</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218226&key=krgexxuardvhjliu&from=gy2">糊弄人！北京学校开学 网曝核酸检测5个采样放一瓶</a></td></tr>
 
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217946&key=krgexxuardvhjliu&from=gy2">周晓辉：安倍辞职 日本将迎来强硬反共首相</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217943&key=krgexxuardvhjliu&from=gy2">中共监所恐怖刑具视频流出 网友震惊（多视频）</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217936&key=krgexxuardvhjliu&from=gy2">网传残骸落广西 中共南海射导弹数量成疑</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217935&key=krgexxuardvhjliu&from=gy2">罕见 白宫国安顾问演讲直呼“中华民国”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217942&key=krgexxuardvhjliu&from=gy2">【新闻第一现场】王毅PS照火爆 安倍继任者？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217825&key=krgexxuardvhjliu&from=gy2">王赫：南海问题是中共脖子上的一道枷锁</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217945&key=krgexxuardvhjliu&from=gy2">【薇羽看世间】FBI解密：来自金星的科学家</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217913&key=krgexxuardvhjliu&from=gy2">网传中印冲突中方士兵墓碑照 官媒转发后急删</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217940&key=krgexxuardvhjliu&from=gy2">小猪大脑植入晶片 马斯克直播新研究成果</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217950&key=krgexxuardvhjliu&from=gy2">赵立坚要人民当中共“铜墙铁壁” 网友痛骂</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217914&key=krgexxuardvhjliu&from=gy2">美国冷战武器今派用场 各种侦察机</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217934&key=krgexxuardvhjliu&from=gy2">援朝老军人被克扣残疾金上访 被打死在县委大院</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217921&key=krgexxuardvhjliu&from=gy2">西藏下令引导民众感恩共产党 习近平号召藏传佛教中国化</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217926&key=krgexxuardvhjliu&from=gy2">《石涛聚焦》唐娟被意外保释之际 FBI再连续抓捕2名中共国年轻学者-偷窃者</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217923&key=krgexxuardvhjliu&from=gy2">解放军南海军演最后一天 美4军机同飞南海空域</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217924&key=krgexxuardvhjliu&from=gy2">中共南海军演结束当天 美4军机飞抵南海</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217948&key=krgexxuardvhjliu&from=gy2">全国律界被整治 湖南上千律师执业证被撤销</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217933&key=krgexxuardvhjliu&from=gy2">网传残骸落广西 中共南海射导弹数量成疑</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217922&key=krgexxuardvhjliu&from=gy2">山西襄汾酒店坍塌：17人遇难、7人重伤</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217931&key=krgexxuardvhjliu&from=gy2">40年前的波兰团结工会运动与白俄罗斯抗议示威</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217939&key=krgexxuardvhjliu&from=gy2">暴风集团被深交所终止上市</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217929&key=krgexxuardvhjliu&from=gy2">川普：NBA罢赛如同政治活动 将毁了篮球</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217938&key=krgexxuardvhjliu&from=gy2">中国人工智能公司被美制裁 芯片供应恐吃紧</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217949&key=krgexxuardvhjliu&from=gy2">印媒披露中共推特宣传造假术</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217912&key=krgexxuardvhjliu&from=gy2">【视频】山西襄汾聚仙饭店坍塌多人伤亡</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217928&key=krgexxuardvhjliu&from=gy2">放弃香港 谷歌、脸书海底电缆计划改连台湾菲律宾</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217951&key=krgexxuardvhjliu&from=gy2">中国上汽集团上半年净利润锐降39%</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217930&key=krgexxuardvhjliu&from=gy2">中共驻英外交官人数10年增近25%疑扩大政治影响力</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217925&key=krgexxuardvhjliu&from=gy2">【名家专栏】美大选 同情高雅vs政策绩效</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217947&key=krgexxuardvhjliu&from=gy2">【内幕】6.3万新疆网民遭中共处置调查</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217927&key=krgexxuardvhjliu&from=gy2">疫情下救经济 川普允许缓缴薪资税</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aaaaaaaa.xvhtf.cyou/?name=c1217944&key=krgexxuardvhjliu&from=gy2">【名家专栏】全民医保不解决医疗保健问题</a></td></tr>
 
  <tr>
    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/jf-1.jpg"></td>
