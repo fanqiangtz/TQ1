@@ -1,47 +1,50 @@
 ## 📩请及时收藏本站 https://git.io/ynews 以免失连</a>
 ## 自救专区： [君子不立危樯之下，赶快自救保平安 ](https://github.com/pwgy/td/blob/master/README.md)
 
-## 墙外头条 2020年08月31日(每日更新）</a>
+## 墙外头条 2020年09月01日(每日更新）</a>
 
  <table>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218211&key=krgexxuardvhjliu&from=gy2">习近平成敌人？朝鲜下杀无赦令 中共打破全球科学所有规范 中国最暴利血腥行业大跃进</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218239&key=krgexxuardvhjliu&from=gy2">罕见！澳洲议员点名怒轰习近平 执掌世界最完备的极权政权</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218253&key=krgexxuardvhjliu&from=gy2">安倍因病辞职 专家惊爆：与美联手准备对中共开战</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218236&key=krgexxuardvhjliu&from=gy2">想处理掉旧电脑和旧手机？如何避免犯大错</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218242&key=krgexxuardvhjliu&from=gy2">芯片国产梦碎 中国唯一7纳米光刻机被抵押</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218258&key=krgexxuardvhjliu&from=gy2">中国面临几十年来最严重的蝗灾</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218208&key=krgexxuardvhjliu&from=gy2">【拍案惊奇】史上最强炸弹曝光！中共导弹提前坠落？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218244&key=krgexxuardvhjliu&from=gy2">王友群：天要灭中共 谁将被押上审判台？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218245&key=krgexxuardvhjliu&from=gy2">【禁闻】中石油密件曝光: 中共海外党组织转入地下</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218222&key=krgexxuardvhjliu&from=gy2">七招帮你检查和改善家中Wi-Fi速度</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218250&key=krgexxuardvhjliu&from=gy2">张菁：香港通识教育为何成中共大噩梦？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218257&key=krgexxuardvhjliu&from=gy2">华为员工信心动摇 担心会被裁员</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218254&key=krgexxuardvhjliu&from=gy2">台湾不让了！吴钊燮曝国军惊人战力：亚洲最大F16战机群</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218255&key=krgexxuardvhjliu&from=gy2">妻与姊夫有染 镇江男杀10岁外甥报复</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218212&key=krgexxuardvhjliu&from=gy2">内幕：强关P2P平台 中共维稳手段曝光</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218262&key=krgexxuardvhjliu&from=gy2">【禁闻】8月30日维权动态</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218264&key=krgexxuardvhjliu&from=gy2">【禁闻】武汉千亿芯片生产线 面临“烂尾”风险</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218220&key=krgexxuardvhjliu&from=gy2">厉害国楼梯消失酒店坍塌  网造反!胡锡进华春莹翻车 猜不到?国际学术为何政审?</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218237&key=krgexxuardvhjliu&from=gy2">美警“跪杀”黑人：涉案前警员指事主死于毒品作用 要求撤控</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218248&key=krgexxuardvhjliu&from=gy2">中国整治吃播频道 主播爆解雇与离职潮</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218241&key=krgexxuardvhjliu&from=gy2">中共出新规 TikTok在美出售恐受阻</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218256&key=krgexxuardvhjliu&from=gy2">菅义伟将竞选自民党总裁 成为接任安倍首相的热门人选</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218240&key=krgexxuardvhjliu&from=gy2">赵立坚“铜墙铁壁”之说  网路骂声如潮</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218213&key=krgexxuardvhjliu&from=gy2">欧洲重申人权关切 法媒：王毅拉拢之行失败</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218232&key=krgexxuardvhjliu&from=gy2">疫苗危机 沪专家:疫苗反应可致中共肺炎加重</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218233&key=krgexxuardvhjliu&from=gy2">最强Apple分析师：华为最坏情况是退出手机市场</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218230&key=krgexxuardvhjliu&from=gy2">美中军事角力升级 专家：习近平顾忌一事 不会开战</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218228&key=krgexxuardvhjliu&from=gy2">【欺世大观】江上青是江泽民的死虎皮</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218265&key=krgexxuardvhjliu&from=gy2">新竹风筝节登场！3岁女童遭捲上天空狂甩 有惊无险</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218263&key=krgexxuardvhjliu&from=gy2">曾训斥“吹哨人” 蔡莉被免职 相关消息遭网络禁言</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218225&key=krgexxuardvhjliu&from=gy2">王毅抵柏林前 德议员警告本国外长:中国已经丧失了“成为值得信赖之伙伴的资格”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218231&key=krgexxuardvhjliu&from=gy2">著名作家：民主党鼓励街头骚乱致民调不利 欲嫁祸川普无济于事</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218216&key=krgexxuardvhjliu&from=gy2">疫苗危机 沪专家:疫苗反应可致中共肺炎加重</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218215&key=krgexxuardvhjliu&from=gy2">北京市前政法委常务副书记李伟被查</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218223&key=krgexxuardvhjliu&from=gy2">中国四大银行盈利跌幅10年最差 资产质素急速恶化</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218261&key=krgexxuardvhjliu&from=gy2">A股二十家公司上半年亏十亿 “两桶油”领亏</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://aeaawfsb.xvhtf.cyou/?name=c1218226&key=krgexxuardvhjliu&from=gy2">糊弄人！北京学校开学 网曝核酸检测5个采样放一瓶</a></td></tr>
-
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218559&key=krgexxuardvhjliu&from=gy2">杨威：王毅喊话欧洲联合抗美 恐掀大风暴</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218610&key=krgexxuardvhjliu&from=gy2">内蒙禁蒙语教学万民抗议 警暴力镇压一学生坠楼</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218614&key=krgexxuardvhjliu&from=gy2">美在台协会解密对台6保证 警告中共勿错解817公报</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218628&key=krgexxuardvhjliu&from=gy2">张林：中共又逼反了蒙古人！</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218601&key=krgexxuardvhjliu&from=gy2">中共外长王毅“代价说”引发捷克人士反弹</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218548&key=krgexxuardvhjliu&from=gy2">内蒙加速汉化教育抗议声此起彼落 大批示威者被捕一学生跳楼亡</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218626&key=krgexxuardvhjliu&from=gy2">云南爆发数十年最严重蝗灾 农户不知所措</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218605&key=krgexxuardvhjliu&from=gy2">打脸中共！台捷签署三大MOU 韦德齐：绝不会光说不做</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218607&key=krgexxuardvhjliu&from=gy2">媒体人李军：中共构造了一个颠倒黑白的“世界观和历史观” 让国人深陷其中</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218613&key=krgexxuardvhjliu&from=gy2">【中国禁闻】8月31日完整版</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218642&key=krgexxuardvhjliu&from=gy2">印度指挫败共军边境挑衅 中共反称印军越界</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218609&key=krgexxuardvhjliu&from=gy2">中共限人工智能等技术出口 纳瓦罗回呛</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218602&key=krgexxuardvhjliu&from=gy2">又突破了！台美将启动「经济对话」 并由美国国务次卿主持</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218572&key=krgexxuardvhjliu&from=gy2">【欺世大观】汉奸毛泽东：秘密结盟 卖国求生</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218553&key=krgexxuardvhjliu&from=gy2">习近平召集经济社会领域专家座谈会 陆铭出席引户籍改革猜想</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218604&key=krgexxuardvhjliu&from=gy2">CDC：染中共病毒死亡案例中 94%民众死于潜伏病因</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218615&key=krgexxuardvhjliu&from=gy2">【禁闻】内蒙强推汉语教学 警察上门抓孩子上课</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218640&key=krgexxuardvhjliu&from=gy2">为热度黑明星 陆综套路被揭：事后道歉称失误</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218639&key=krgexxuardvhjliu&from=gy2">【重播】川普发布会：将亲赴基诺沙视察</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218657&key=krgexxuardvhjliu&from=gy2">一个大佬被封微信 从腾讯副总一直找到某党中央 屁用没有</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218649&key=krgexxuardvhjliu&from=gy2">不仅粮食短缺 卫健委启动减油宣传 网友：感觉不对劲啊！</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218560&key=krgexxuardvhjliu&from=gy2">《石涛聚焦》台外交部长：台湾已准备好 重返联合国</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218606&key=krgexxuardvhjliu&from=gy2">字节跳动表态 称遵守中共对TikTok技术出口限制</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218568&key=krgexxuardvhjliu&from=gy2">山西饭店塌 80岁寿星痛失3亲友 下跪道歉上热搜</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218638&key=krgexxuardvhjliu&from=gy2">【视频】蒙古族教师保护母语 斥国保骚扰</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218641&key=krgexxuardvhjliu&from=gy2">布朗巴克：中共活摘器官 世界不能袖手旁观</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218554&key=krgexxuardvhjliu&from=gy2">美公布两解密电报 重申对台“六项保证”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218627&key=krgexxuardvhjliu&from=gy2">大陆多地法轮功学员被强行采血  被指为器官移植做配型</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218551&key=krgexxuardvhjliu&from=gy2">山西平遥古城百余户祖屋遭强行“共产”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218654&key=krgexxuardvhjliu&from=gy2">胡锡进以权谋私要栽？摊上事了</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218622&key=krgexxuardvhjliu&from=gy2">陈彦霖死因研讯第6日：督察作供说检查遗体后不确定有没有可疑</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218546&key=krgexxuardvhjliu&from=gy2">“踩红线的人” - 国安法文字狱之下的香港出版书业</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218547&key=krgexxuardvhjliu&from=gy2">捷克议长台湾演讲：自由真理和公义是台湾最好的剑和盔甲</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218658&key=krgexxuardvhjliu&from=gy2">邂逅枫：这只是一件小事 但实在是糟透了</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218655&key=krgexxuardvhjliu&from=gy2">中石油有两个致命问题！亏损与权贵无关 成本都转嫁到老百姓头上了</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218600&key=krgexxuardvhjliu&from=gy2">大陆暴雨再袭！高速公路直接被吞没、住家楼梯也成「洩洪口」</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218550&key=krgexxuardvhjliu&from=gy2">赵立坚再拿“中国人民”说事 网民驳斥</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218586&key=krgexxuardvhjliu&from=gy2">洪水猛烈！四川雅安电力线路、水文站栏杆被冲毁</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218603&key=krgexxuardvhjliu&from=gy2">加拿大反种族歧视抗议 国父雕像遭推倒头部飞落</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218574&key=krgexxuardvhjliu&from=gy2">【禁闻】中共出新规 阻TikTok出售防后门技术曝光?</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wvlxozxp.xvhtf.cyou/?name=c1218584&key=krgexxuardvhjliu&from=gy2">光子探测效率突破100%</a></td></tr>
 
  <tr>
    <td colspan="2" align=center><img src="https://cdn.jsdelivr.net/gh/gyoupiodf/im1/jf-1.jpg"></td>
