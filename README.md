@@ -42,7 +42,7 @@
 <tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1221219&key=krgexxuardvhjliu&from=gy2">长周末暴乱再起 川普：激进左派州长和市长的软弱是主因</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1221170&key=krgexxuardvhjliu&from=gy2">广西6岁童遭货车卷入车底 急中生智死里逃生</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1221210&key=krgexxuardvhjliu&from=gy2">党媒刊“全世界都是中国敌人” 被指高级黑</a></td></tr>
-
+</table>
 
  ## 自救专区： [君子不立危樯之下，赶快自救保平安🍎 快快快 📩](https://github.com/pwgy/td/blob/master/README.md)
  
