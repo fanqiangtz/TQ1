@@ -1,40 +1,41 @@
 ## 📩请及时收藏本站 https://git.io/ynews 以免失连</a>
 ## 自救专区： [君子不立危樯之下，赶快自救保平安 ](https://github.com/pwgy/td/blob/master/README.md)
 
-## 墙外头条 2020年10月13日(每日更新）</a>
+## 墙外头条 2020年10月14日(每日更新）</a>
 
  <table>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233495&key=krgexxuardvhjliu&from=gy2">【禁闻】习近平潮州考察 网友：“民众”全是演员</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233475&key=krgexxuardvhjliu&from=gy2">钟原：习颁中央条例 李克强坚持过紧日子</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233499&key=krgexxuardvhjliu&from=gy2">防弹少年团提韩战 赵立坚回应令小粉红傻眼</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233496&key=krgexxuardvhjliu&from=gy2">【禁闻】中共五中全会前 党内“异声”频现</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233426&key=krgexxuardvhjliu&from=gy2">拜登拉票说错话「试试自己的乳房」 网友傻眼狂轰：该治痴呆症</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233497&key=krgexxuardvhjliu&from=gy2">【江峰时刻】贺锦丽参议院阻击战 VS川普提名大法官</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233502&key=krgexxuardvhjliu&from=gy2">珍言真语：陈光诚：灭共是国策 美已定步骤</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233493&key=krgexxuardvhjliu&from=gy2">【禁闻】中共抛出“台谍案”回避两岸和平对话</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233430&key=krgexxuardvhjliu&from=gy2">习近平南下已抵潮州 网友批“扰民”遭约谈</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233428&key=krgexxuardvhjliu&from=gy2">中国青岛再响疫情警报 900万人大排查恐难一网打尽</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233442&key=krgexxuardvhjliu&from=gy2">周晓辉： 川普要排干沼泽 北京能置身事外？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233450&key=krgexxuardvhjliu&from=gy2">金灿荣亲口证实儿子留学美国 其子身份学历曝光</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233445&key=krgexxuardvhjliu&from=gy2">青岛再爆疫情 媒体人曝官方下令资讯保密 数百万游客或成大陆疫情反弹导火索</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233505&key=krgexxuardvhjliu&from=gy2">派出所长：办案就为搞钱 胃口不大只要千把万(录音)</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233447&key=krgexxuardvhjliu&from=gy2">孔子学院中方院长遭警搜查后死亡 中共掩饰涉「儿童色情案」原因</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233476&key=krgexxuardvhjliu&from=gy2">【慧月瞰今昔】美国移民新指南 断了谁的移民梦？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233438&key=krgexxuardvhjliu&from=gy2">青岛多起中共病毒病例涉胸科医院 舆论归咎十一长假期斥当局亡羊补牢</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233483&key=krgexxuardvhjliu&from=gy2">中共出台伊斯兰教朝觐办法：除伊协外 不得组织朝觐</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233452&key=krgexxuardvhjliu&from=gy2">肖然：拜登或被取消竞选资格 希拉里犯有坐牢重罪</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233468&key=krgexxuardvhjliu&from=gy2">全球经贸战：新一个战场来自“数码税” 最快年底引爆</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233451&key=krgexxuardvhjliu&from=gy2">佚名：失去“诚信”就将失去一切</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233458&key=krgexxuardvhjliu&from=gy2">醉汉调戏女老板被霸气踹倒视频火了！结果出现大反转</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233429&key=krgexxuardvhjliu&from=gy2">中兴通讯再炒7纳米芯片消息 被揭不符事实</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233439&key=krgexxuardvhjliu&from=gy2">韩国男团BTS提朝鲜战争 产品被中共下架</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233474&key=krgexxuardvhjliu&from=gy2">【禁闻】青岛连夜测核酸 市民不信官方数据</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233469&key=krgexxuardvhjliu&from=gy2">贫富悬殊炸弹！美千禧世代财富占全国不足5%</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233478&key=krgexxuardvhjliu&from=gy2">全球经贸战：传中国已暂停从澳洲采购煤炭</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233443&key=krgexxuardvhjliu&from=gy2">谢燕益：许志永案法律意见书及致公检法三长公开信</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233427&key=krgexxuardvhjliu&from=gy2">第2波疫情席捲欧洲！各国「防疫限制措施」一次看</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233473&key=krgexxuardvhjliu&from=gy2">防弹少年提韩战惹怒小粉红 战狼赵立坚忽低调灭火</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233504&key=krgexxuardvhjliu&from=gy2">联手更多国家对抗中共？美拟扩展四方同盟</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233766&key=krgexxuardvhjliu&from=gy2">川普必胜2个迹象2个数据 南海真开打？内部文件亮了 惊曝美最重要机构与中共密切</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233818&key=krgexxuardvhjliu&from=gy2">习近平 : 要把全部心思和精力放在备战打仗上</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233837&key=krgexxuardvhjliu&from=gy2">佩洛西正式“落闸”！美国无望大选前达成刺激方案</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233836&key=krgexxuardvhjliu&from=gy2">餐厅挂「蝙蝠人习近平」海报被投诉「种族歧视」 网民指习掩盖疫情惹憎恨</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233776&key=krgexxuardvhjliu&from=gy2">《石涛聚焦》日媒惊爆：大选前 川普计划突访台湾 胜选在握</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233828&key=krgexxuardvhjliu&from=gy2">【禁闻】疫情十一前已爆发 青岛为旅游收入隐瞒</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233839&key=krgexxuardvhjliu&from=gy2">隐藏在孔祥熙、阎锡山和傅作义身边的三个共谍</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233845&key=krgexxuardvhjliu&from=gy2">陈破空：习近平行程意外 防范谁？川普击败中共暗器</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233780&key=krgexxuardvhjliu&from=gy2">习近平访汕头 女子突然冲向车队递材料（视频）</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233802&key=krgexxuardvhjliu&from=gy2">港传染病专家：冬季中共病毒或出现大爆发</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233792&key=krgexxuardvhjliu&from=gy2">看好川普连任 专家:美大选民调有两问题</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233823&key=krgexxuardvhjliu&from=gy2">中共力控网络舆论 观察家各有见解</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233799&key=krgexxuardvhjliu&from=gy2">新发明从石墨烯获得无尽洁净能源</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233815&key=krgexxuardvhjliu&from=gy2">中共伸出审查长臂 法国博物馆拒绝受管</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233835&key=krgexxuardvhjliu&from=gy2">补实高院大法官后废奥巴马健保？巴瑞特：我没有敌意</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233782&key=krgexxuardvhjliu&from=gy2">传钟南山已抵青岛 甘肃医护千里驰援视频曝光</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233820&key=krgexxuardvhjliu&from=gy2">南京持不同政见人士郭泉获准会见律师 被控“煽颠”不惧坐牢</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233838&key=krgexxuardvhjliu&from=gy2">中国经济：大陆手机市场9月出货量按年跌35.6%</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233797&key=krgexxuardvhjliu&from=gy2">网传青岛疫情是秋冬季反弹 官方辟谣 各地医疗队支援</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233788&key=krgexxuardvhjliu&from=gy2">中国拟下调最低刑责年龄至12岁引发爭议</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233821&key=krgexxuardvhjliu&from=gy2">消息人士：白宫推动更多对台湾军售计划</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233779&key=krgexxuardvhjliu&from=gy2">大学教授充当中共吹鼓手 患癌筹款却遭打压</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233769&key=krgexxuardvhjliu&from=gy2">知情人曝“泼墨女”近况 被安排抄写习讲话维稳</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233803&key=krgexxuardvhjliu&from=gy2">报告：中共纵容远洋船队滥捕捞的背后</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233775&key=krgexxuardvhjliu&from=gy2">《石涛聚焦》足坛巨星罗纳尔多染病毒 震爆世界</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233819&key=krgexxuardvhjliu&from=gy2">美国务卿蓬佩奥发布智库接受外资透明状况新规 剑指中俄</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233800&key=krgexxuardvhjliu&from=gy2">川普疾呼：把波特兰骚乱中的“禽兽”关进监狱</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233774&key=krgexxuardvhjliu&from=gy2">【江峰时刻】直播热点： 川普总统体检神奇转阴 拜登感觉安全还是更加危险？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233787&key=krgexxuardvhjliu&from=gy2">习近平视察国企谈自力更生 中国正步入计划经济年代</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233762&key=krgexxuardvhjliu&from=gy2">习近平再提“自力更生” 背后有深意</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233816&key=krgexxuardvhjliu&from=gy2">韩国BTS涉“辱华”被中国网友谴责 BTS真的“辱华”了吗？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1233813&key=krgexxuardvhjliu&from=gy2">联合国大会 耿爽再开“战狼模式”</a></td></tr>
 
 </table>
 
