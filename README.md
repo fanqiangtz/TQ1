@@ -4,46 +4,44 @@
 ## 墙外头条 2020年11月04日(每日更新）
 
  <table>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241517&key=krgexxuardvhjliu&from=gy2">川普大胜迹象多 过400票？最新！民主党王牌改口了 川普放信号 左派寄望...</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241598&key=krgexxuardvhjliu&from=gy2">李克强河南考察 意外发生了 持续了20秒…</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241535&key=krgexxuardvhjliu&from=gy2">习近平势弱？恩师突露面 马云杠习？蚂蚁集团出大事 震撼 川普和无数美国人都拼了</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241577&key=krgexxuardvhjliu&from=gy2">中共病毒入侵人的梦境 是下一场危机的开端</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241518&key=krgexxuardvhjliu&from=gy2">化解美中脱钩关键 余茂春：中国要有分寸</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241561&key=krgexxuardvhjliu&from=gy2">副教授藉「讨论功课」骗至郊区 女大生泣：全身被又啃又咬</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241536&key=krgexxuardvhjliu&from=gy2">美国总统大选／鹿死谁手？掌握各州开票时间</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241602&key=krgexxuardvhjliu&from=gy2">蚂蚁暂缓上市！中共监管新政 重击马云3个要害</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241590&key=krgexxuardvhjliu&from=gy2">新疆逃亡者：锁老虎凳 挨电棒 邻居女孩集中营内怀孕</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241543&key=krgexxuardvhjliu&from=gy2">马云被约谈 电影“功守道”片段走红</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241606&key=krgexxuardvhjliu&from=gy2">没戴口罩现身投票！梅兰妮亚笑容灿烂：我感觉非常好</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241567&key=krgexxuardvhjliu&from=gy2">蚂蚁集团营收只有中国平安的1/8</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241575&key=krgexxuardvhjliu&from=gy2">川普踏入拜登家乡拉票 民主党惊爆:超过10位官员倒戈投川普</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241519&key=krgexxuardvhjliu&from=gy2">可口可乐进军中国乳业 合资公司取名可牛了</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241563&key=krgexxuardvhjliu&from=gy2">在河南安阳考察时“群众演员”造假 连李克强都不信</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241597&key=krgexxuardvhjliu&from=gy2">女性到了美国 为什么就不愿回国了？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241546&key=krgexxuardvhjliu&from=gy2">【拍案惊奇】大宇“大选日”DC直播</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241589&key=krgexxuardvhjliu&from=gy2">蚂蚁暂缓上市 专家：预警股市突困失利</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241562&key=krgexxuardvhjliu&from=gy2">美国大选登场！中共角色尴尬且负面 变相帮川普拉亚裔票</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241612&key=krgexxuardvhjliu&from=gy2">李克强访豫再三质疑老农收入 半空传凄厉叫声(视频)</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241581&key=krgexxuardvhjliu&from=gy2">“十四五规划”全文发布 明年建成小康社会</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241544&key=krgexxuardvhjliu&from=gy2">网曝马云口出“狂言”挑衅习近平！蚂蚁金服被暂停上市（视频）</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1236129&key=krgexxuardvhjliu&from=gy2">【疫情更新31】世卫与中共秘密协议曝光 “病毒溯源”惹质疑</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241572&key=krgexxuardvhjliu&from=gy2">【禁闻】中共官场震荡 私藏禁书成头条罪状</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241553&key=krgexxuardvhjliu&from=gy2">蚂蚁上市突然被叫停 官民争斗使蚂蚁金服秒变“马已经服”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241555&key=krgexxuardvhjliu&from=gy2">小粉红道士疑开罪道教高官遭抛弃 扬言将晒出高层腐败证据报复</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241615&key=krgexxuardvhjliu&from=gy2">中共为何叫川普「特朗普」？她揭秘：俄国小弟！死共产党</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241532&key=krgexxuardvhjliu&from=gy2">【拍案惊奇】直播一：问鼎白宫 谁将是新一届美国总统</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241564&key=krgexxuardvhjliu&from=gy2">川普：拜登不能应对党内左倾势力 几乎无法执政</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241556&key=krgexxuardvhjliu&from=gy2">加总领事：如有必要 已作好从香港大规模撤侨计划</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241578&key=krgexxuardvhjliu&from=gy2">为何「川粉」挺川普？福斯新闻主持人：因为他不会鄙视他们的弱势</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241560&key=krgexxuardvhjliu&from=gy2">武肺大流行北韩却0确诊？外媒爆：全在集中营「活活饿死」</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241525&key=krgexxuardvhjliu&from=gy2">港警破天荒抓捕调查报道记者 打压新闻自由引公愤</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241554&key=krgexxuardvhjliu&from=gy2">香港前景不明政局动荡：名校爆退学潮罕有招插班生</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241591&key=krgexxuardvhjliu&from=gy2">【禁闻】美国务院新网页列举中共迫害人权劣迹</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241539&key=krgexxuardvhjliu&from=gy2">“史上最难就业季”中国大学毕业生就业有多难？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241613&key=krgexxuardvhjliu&from=gy2">【新闻嘲点】美国大选日 感受纽约的日常气氛</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241579&key=krgexxuardvhjliu&from=gy2">造成29人死伤的加国印度裔移民努力争取避免被遣返</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241545&key=krgexxuardvhjliu&from=gy2">大陆民众观选：盼望美国民主赢得胜利（视频）</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241514&key=krgexxuardvhjliu&from=gy2">【独家报导】中共大撒币 拉“一带一路”国家留学生</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241890&key=krgexxuardvhjliu&from=gy2">密西根州翻盘 川普：好奇怪我的领先一个接一个神奇消失</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241906&key=krgexxuardvhjliu&from=gy2">川普稳赢历翻天覆地一夜 民主党阵营大量选举欺诈 推特疯了！狂删川普推文</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241907&key=krgexxuardvhjliu&from=gy2">川普要大赢了？希拉里「深夜突发」败选贴文：别灰心丧志</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241940&key=krgexxuardvhjliu&from=gy2">川普：他们试图偷窃此大选的结果 将诉讼至最高法院</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241926&key=krgexxuardvhjliu&from=gy2">【江峰时刻】关键州作弊证据在手 宪政危机！</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241915&key=krgexxuardvhjliu&from=gy2">川普可能获胜 华盛顿特区反川粉群起暴动 网友：这就是为什么川普会连任</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241911&key=krgexxuardvhjliu&from=gy2">疑似追打马云 中共官方罕见警告双11网购陷阱</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241963&key=krgexxuardvhjliu&from=gy2">六大战场州悬而未定！或需打官司了！</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241939&key=krgexxuardvhjliu&from=gy2">拜登选情告急 胡锡进急了 大骂美国民调机构</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241912&key=krgexxuardvhjliu&from=gy2">【欺世大观】黄继光堵枪眼官媒3版本 军方悄否定</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241956&key=krgexxuardvhjliu&from=gy2">民主党想夺回参议院控制权 愿景恐落空</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241931&key=krgexxuardvhjliu&from=gy2">川普发起诉讼中止和审查密歇根州计票 要求威斯康辛州重新计票</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241949&key=krgexxuardvhjliu&from=gy2">一套房子一欧元 中国人口空心化的楼市警钟</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241905&key=krgexxuardvhjliu&from=gy2">欧盟第一国! 「恭喜川普连任」斯洛维尼亚总理抢先发文：结果很明显了</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241944&key=krgexxuardvhjliu&from=gy2">【禁闻】美国大选 中国官民反应大不同</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241966&key=krgexxuardvhjliu&from=gy2">川普律师：总统有权诉诸所有法律选项</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241904&key=krgexxuardvhjliu&from=gy2">川普31票入袋有望！乔治亚、北卡州得票率逾50%领先</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241913&key=krgexxuardvhjliu&from=gy2">决战摇摆州124票！美国总统大选「6大关键选区」一次看</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241927&key=krgexxuardvhjliu&from=gy2">《石涛聚焦》美国大选特辑 H：投票统计图被鬼操控！</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241962&key=krgexxuardvhjliu&from=gy2">调查报道成针对目标 浸大吕秉权：政府收紧查册 为记者设陷阱</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241953&key=krgexxuardvhjliu&from=gy2">美众院选举 民主党正在失去一些重要席位</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241943&key=krgexxuardvhjliu&from=gy2">华为又推新手机 网友：山寨iPhone 12</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241938&key=krgexxuardvhjliu&from=gy2">喀什感染者还在陆续发病 再暴增118例 网曝疫苗后效应</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241924&key=krgexxuardvhjliu&from=gy2">【微视频】王岐山复活后蚂蚁上市被叫停！</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241959&key=krgexxuardvhjliu&from=gy2">蚂蚁中港上市突喊停 业界分析背后恐不简单</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241896&key=krgexxuardvhjliu&from=gy2">常忍：中共不光彩的“第一”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241968&key=krgexxuardvhjliu&from=gy2">【禁闻】中共权斗火花溅？蚂蚁集团暂缓沪港上市</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241914&key=krgexxuardvhjliu&from=gy2">拜登当选若失智由贺锦丽接任美国总统?吕秀莲:台湾会面临很大危机</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241920&key=krgexxuardvhjliu&from=gy2">中国网民“翻墙”围观美国选举 关切未来政策是否持续对中共施压</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241935&key=krgexxuardvhjliu&from=gy2">昆明国际商贸城商户罢市 抵制租金上涨 2千保安出动</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241903&key=krgexxuardvhjliu&from=gy2">川普胜选被偷走？ 79天混乱动荡期开始？ 民主党政变能否成功？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241921&key=krgexxuardvhjliu&from=gy2">华尔街日报：中国政府的“双循环”战略是一个高风险押注</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241923&key=krgexxuardvhjliu&from=gy2">美大选前白宫出书 美国对华政策何去何从</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241922&key=krgexxuardvhjliu&from=gy2">自称前中共间谍的维吾尔族人在土耳其被不明袭击者枪击</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241919&key=krgexxuardvhjliu&from=gy2">中、港同步粗暴煞停蚂蚁上市 令国际投资者失去信心</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241958&key=krgexxuardvhjliu&from=gy2">深圳二手房成交量连续三月下跌 10月降42%</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241948&key=krgexxuardvhjliu&from=gy2">威州邮寄选票印刷错误 国民警卫队协助计票</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xdkiug.azureedge.net/?name=c1241976&key=krgexxuardvhjliu&from=gy2">再有美资出货 香港美国商会1.45亿元沽出金钟美银中心单位</a></td></tr>
 
 </table>
 
