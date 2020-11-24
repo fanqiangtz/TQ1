@@ -1,7 +1,7 @@
 ## 📩请及时收藏本站 https://git.io/ynews 以免失连</a>
 ## 自救专区： [君子不立危樯之下，赶快自救保平安 ](https://github.com/pwgy/td/blob/master/README.md)
 
-## 墙外头条热度排行榜 2020年11月23日(每日更新）
+## 墙外头条热度排行榜 2020年11月24日(每日更新）
 
  <table>
 <tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248522&key=efeneplticthcads&from=gy2">颜丹：钟南山曝惊人数据 中共官媒急灭火</a></td></tr>
