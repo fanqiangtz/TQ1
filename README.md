@@ -1,43 +1,45 @@
 ## 📩请及时收藏本站 https://git.io/ynews 以免失连</a>
 ## 自救专区： [君子不立危樯之下，赶快自救保平安 ](https://github.com/pwgy/td/blob/master/README.md)
 
-## 墙外头条热度排行榜 2020年11月25日(每日更新）
+## 墙外头条热度排行榜 2020年11月26日(每日更新）
 
  <table>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248869&key=efeneplticthcads&from=gy2">川普同意过渡拜登窃国未成 密歇根州传来重大利好消息 法律专家：川普有足够时间</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248943&key=efeneplticthcads&from=gy2">川普律师团声明鲍威尔单干 朱利安尼披露原因</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248884&key=efeneplticthcads&from=gy2">北京最低工资调至每年26400元 网崩溃：要怎么活！</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248947&key=efeneplticthcads&from=gy2">福克斯名主持：媒体与拜登公开勾结 操纵美国大选</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248945&key=efeneplticthcads&from=gy2">一文看懂 川普在6摇摆州挑战选举舞弊进展</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248946&key=efeneplticthcads&from=gy2">参议员：逼迫川普让步是无视宪法程序和法治</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248899&key=efeneplticthcads&from=gy2">张艺谋“一秒钟”金鸡奖开幕片疑踩文革红线遭撤</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248882&key=efeneplticthcads&from=gy2">清竹：从“特种部队”直接向防长回报想到的</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248916&key=efeneplticthcads&from=gy2">【禁闻】拜登过渡 美总务署长: 胜选需宪法认证</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248912&key=efeneplticthcads&from=gy2">称外卖员命不值钱 奔驰车主疑遭美团骑手围殴</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248908&key=efeneplticthcads&from=gy2">河南一女纪委书记陈尸黄河 疑被杀</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248930&key=efeneplticthcads&from=gy2">精英统治世界 世界会变成什么样？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248913&key=efeneplticthcads&from=gy2">中共宣布全国脱贫 网友：中国6亿人属联合国经济难民</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248941&key=efeneplticthcads&from=gy2">孪生兄弟狱中奇遇 浪子回头重获新生</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248915&key=efeneplticthcads&from=gy2">【禁闻】列“军民融合”黑名单 美拟再封杀89家中企</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248911&key=efeneplticthcads&from=gy2">称死4千人等于没死惹众怒 李毅遭人民大学急切割</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248928&key=efeneplticthcads&from=gy2">名家专栏：川普总统秘密会谈内容被泄露</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248927&key=efeneplticthcads&from=gy2">穿戴隐形眼镜的工具问世</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248948&key=efeneplticthcads&from=gy2">名家专栏：大选 2020年尚未结束</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248900&key=efeneplticthcads&from=gy2">美国新制裁 重创中国919大飞机否？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248889&key=efeneplticthcads&from=gy2">周晓辉：朱利安尼与鲍威尔两线作战 目标一致</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248929&key=efeneplticthcads&from=gy2">「戳瞎眼睛」和「诗经教化」</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248940&key=efeneplticthcads&from=gy2">中共病毒感染个案激增 港府收紧防疫政策</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248898&key=efeneplticthcads&from=gy2">中南海大管家新面孔 孟祥锋或从丁薛祥接班</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248868&key=efeneplticthcads&from=gy2">张展绝食 方斌失踪290天 海外持续关注</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248901&key=efeneplticthcads&from=gy2">“中俄北京条约”160年后 两国无互信更难结盟</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248942&key=efeneplticthcads&from=gy2">众议员吁各州检察长诉违宪州 直接上最高法院</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248925&key=efeneplticthcads&from=gy2">澳洲科学家首次常温下造出钻石 仅需数分钟</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248892&key=efeneplticthcads&from=gy2">川普棋高一招有3层布局 美高官访台与投票机有关？ 华日批挺川华人 网络哗然</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248926&key=efeneplticthcads&from=gy2">量子网络高效调制解调器获突破</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248897&key=efeneplticthcads&from=gy2">美国全球排除华为 中国手机品牌争抢华为蛋糕</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248881&key=efeneplticthcads&from=gy2">进行利益输送被掏空 明天系包商银行宣告破产</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248867&key=efeneplticthcads&from=gy2">内蒙古满洲里公车停驶 全市居民疫情普筛</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1248870&key=efeneplticthcads&from=gy2">印度再以国安为由严禁中国支付宝等43款App</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249240&key=efeneplticthcads&from=gy2">陈破空：英国动议出兵中国？日本强烈赞同</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249239&key=efeneplticthcads&from=gy2">【睿眼看世界】李克强又和习近平撞车 没钱了 矛盾根本掩盖不住</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249329&key=efeneplticthcads&from=gy2">【打假台】拜登确认当选？习近平也“中招”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249323&key=efeneplticthcads&from=gy2">中共地方高层人事大变动 曾现诡异现象</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249338&key=efeneplticthcads&from=gy2">快讯！川普总统宣布特赦弗林将军【阿波罗网编译】</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249294&key=efeneplticthcads&from=gy2">逆转！宾州法官下令叫停该州选举认证</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249295&key=efeneplticthcads&from=gy2">平行世界真的存在？NASA科学家发现惊人证据</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249330&key=efeneplticthcads&from=gy2">大外宣发文 揭马云出事真正原因？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249262&key=efeneplticthcads&from=gy2">习近平致电拜登祝贺其当选美国总统</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249293&key=efeneplticthcads&from=gy2">细思极恐：凌晨4点 女住客房门被男服务员刷开…</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249292&key=efeneplticthcads&from=gy2">溶尸凶杀案震惊世人 被害16岁少女背景曝光</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249303&key=efeneplticthcads&from=gy2">《石涛聚焦》佳音突至 宾州法官阻止州官员认证投票结果！</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249238&key=efeneplticthcads&from=gy2">【一线采访】武汉多复阳及无症状感染者 中共噤声</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249248&key=efeneplticthcads&from=gy2">世界盃轰轰烈烈的「上帝之手」 阿根廷球星马拉度纳过世</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249328&key=efeneplticthcads&from=gy2">胡锡进要人“别和有钱人比” 被轰：假共产</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249324&key=efeneplticthcads&from=gy2">5分钟杀死病毒 加国亚伯塔大学研发口罩获奖</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249319&key=efeneplticthcads&from=gy2">威州重新计票 监票员被迫佩戴大便符号腕带</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249272&key=efeneplticthcads&from=gy2">川普秘密会谈内容被泄露 惊爆五角大楼成国安威胁 川普共和党4州16法律战</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249296&key=efeneplticthcads&from=gy2">川普阵营在乔治亚发起关键诉讼！诉诸第11巡回法庭</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249247&key=efeneplticthcads&from=gy2">密歇根大法官令迅评指控 威州惊现15万可疑票被诉 鲍威尔诉乔州联手林伍德</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249332&key=efeneplticthcads&from=gy2">【拍案惊奇】指中共黑金影响选举 林伍德联手鲍威尔征战乔治亚州</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249301&key=efeneplticthcads&from=gy2">杨威：习近平匆忙祝贺拜登 中共垮台恐再加速</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249263&key=efeneplticthcads&from=gy2">鲍威尔揭秘投票机主使藏匿 共和党加州翻转4席超全美 拜登&quot;国务卿&quot;涉庞大军火利益</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249318&key=efeneplticthcads&from=gy2">蒙古族人抗议王毅访日 促中共撤汉化教育</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249264&key=efeneplticthcads&from=gy2">蓬佩奥：拜登团队有些生活于幻想世界 形式性多边主义不利美国利益</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249321&key=efeneplticthcads&from=gy2">密歇根议会弹劾极左州长 一县委会支持</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249269&key=efeneplticthcads&from=gy2">学者揭中共盗窃技术3种手段 并提3项反制</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249320&key=efeneplticthcads&from=gy2">中共拟收紧涉外宗教条例 台港澳被视为外人需格外谨慎</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249250&key=efeneplticthcads&from=gy2">瑞士惊传恐攻 女持刀高喊「真主至上」刺杀逛街2女</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249302&key=efeneplticthcads&from=gy2">【微视频】川普律师团队新声明 总务署长教训深刻</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249297&key=efeneplticthcads&from=gy2">内蒙古满洲里公车停驶 全市居民疫情普筛</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249249&key=efeneplticthcads&from=gy2">中国大妈组敛财团！肉身拦婚车「讨红包」 一天赚1500元</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249246&key=efeneplticthcads&from=gy2">德国总理府遭车冲撞！车身上写：停止全球化政治 你们是杀害小孩和老人的该死凶手</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249322&key=efeneplticthcads&from=gy2">亚利桑那共和党诉讼 要求查验选票信封签名</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249336&key=efeneplticthcads&from=gy2">内华达法院将举行听证会 川普团队呈舞弊证据</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://ydbtdds.azureedge.net/?name=c1249274&key=efeneplticthcads&from=gy2">中国造车大梦 藏巨大泡沫风险 恒大汽车被发改委点名调查 股价大跌</a></td></tr>
 
 </table>
 
