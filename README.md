@@ -1,38 +1,40 @@
 ## 📩请及时收藏本站 https://git.io/ynews 以免失连</a>
 ## 自救专区： [君子不立危樯之下，赶快自救保平安 ](https://github.com/pwgy/td/blob/master/README.md)
 
-## 墙外头条热度排行榜 2020年12月03日(每日更新）
+## 墙外头条热度排行榜 2020年12月04日(每日更新）
 
  <table>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251679&key=pzykfwejorbvjhqc&from=gy2">直播：突发！川普发布任内最重要演讲！(同声传译)</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251631&key=pzykfwejorbvjhqc&from=gy2">中共最强淫僧高官倒台后一年多 接替者曝光</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251656&key=pzykfwejorbvjhqc&from=gy2">林伍德：1月20日川普将宣誓成为美利坚合众国总统 鲍威尔：每一位爱国者都应站出来</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251586&key=pzykfwejorbvjhqc&from=gy2">《石涛聚焦》警世预言：大凶黑色12月</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251598&key=pzykfwejorbvjhqc&from=gy2">逼川普下台 会议内容惨遭曝光 跌破眼镜！大批1岁大美军全投拜登</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251575&key=pzykfwejorbvjhqc&from=gy2">石破天：CNN向川普交投名状？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251659&key=pzykfwejorbvjhqc&from=gy2">方伟评重磅采访: 美国大选是涉及叛国大罪的一场政变(上)</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251614&key=pzykfwejorbvjhqc&from=gy2">拜登发言人被发现曾戴镰刀斧头五星帽</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251680&key=pzykfwejorbvjhqc&from=gy2">斯大林和共产党控制高干们的奇葩手段</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251658&key=pzykfwejorbvjhqc&from=gy2">构陷报道疫情公民记者 上海政府制造伪证</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251663&key=pzykfwejorbvjhqc&from=gy2">央视朱军性骚扰案开庭 民众庭外声援受害人</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251664&key=pzykfwejorbvjhqc&from=gy2">王友群：美国大选中的“法兰克福服务器”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251587&key=pzykfwejorbvjhqc&from=gy2">惊人视频曝光 就这样把川普做掉？亚利桑那州裁定可查选票抽样</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251653&key=pzykfwejorbvjhqc&from=gy2">川普提名FCC委员 获美参院商委会通过</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251657&key=pzykfwejorbvjhqc&from=gy2">展“美国之美” 第一夫人白宫圣诞装饰尊重传统</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251629&key=pzykfwejorbvjhqc&from=gy2">形势不妙 曝中国多省调降预期财政收入</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251572&key=pzykfwejorbvjhqc&from=gy2">中共官方示警：房地产是金融最大灰犀牛</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251615&key=pzykfwejorbvjhqc&from=gy2">林伍德：进行非暴力公民抗命的时候到了 彻底挖出拿中共钱操纵选举的叛国者</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251603&key=pzykfwejorbvjhqc&from=gy2">夏林（21）：川普反击的第三条线 强大秘密武器</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251593&key=pzykfwejorbvjhqc&from=gy2">小粉红扬言割方方舌头 半年后无家可归求救</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251611&key=pzykfwejorbvjhqc&from=gy2">拜登撑不住了！在给谁打气？大选日 多猫腻送法兰克福数据被好人截获 网安专家证词</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251677&key=pzykfwejorbvjhqc&from=gy2">鲍威尔伍德记者会：伍德推荐大纪元、OANN、Newsmax</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251655&key=pzykfwejorbvjhqc&from=gy2">CNN威胁起诉爆料人 川普儿子斥双重标准</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251652&key=pzykfwejorbvjhqc&from=gy2">林伍德：这是第二次独立战争 我们要夺回美国</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251627&key=pzykfwejorbvjhqc&from=gy2">澳大利亚总理用微信对澳洲华人发公开信 被屏蔽</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251581&key=pzykfwejorbvjhqc&from=gy2">拜登发言人被发现曾戴镰刀斧头五星帽</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251648&key=pzykfwejorbvjhqc&from=gy2">中国房价结束只涨不跌：最大跌幅47% 北京下跌16%</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251599&key=pzykfwejorbvjhqc&from=gy2">川普：不终止第230条 将被迫否决国防授权法案</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://pslyjlqv.xlohf.cyou/?name=c1251600&key=pzykfwejorbvjhqc&from=gy2">毕业即失业 中国明年900万高校毕业生就业有多难？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1252009&key=pzykfwejorbvjhqc&from=gy2">巴尔要走人了？川普冲着中共来 好消息 乔州又现6.5万非法选票 足以翻盘</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1252008&key=pzykfwejorbvjhqc&from=gy2">水到渠成 难怪深层政府急了 拜登牵手习近平 急不可待 CNN暴露了？黑手找到了？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1251942&key=pzykfwejorbvjhqc&from=gy2">【新闻大家谈】川普最重要演说释何信号？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1251900&key=pzykfwejorbvjhqc&from=gy2">谢田：川普的双重战略和四面出击</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1251986&key=pzykfwejorbvjhqc&from=gy2">泡沫将破？韩正：要绷紧房地产调控这根弦</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1252013&key=pzykfwejorbvjhqc&from=gy2">周恩来鲜有人知的奢华生活</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1252000&key=pzykfwejorbvjhqc&from=gy2">陆20岁男粉丝刺死女主播案 背后故事曝光</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1252006&key=pzykfwejorbvjhqc&from=gy2">清理左媒？川普提名鹰派入职FCC</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1251979&key=pzykfwejorbvjhqc&from=gy2">一锤定音 他势不可挡 拜登发言人亮共产党身份？ 挖根源头在这里！</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1251995&key=pzykfwejorbvjhqc&from=gy2">众议员拟在联席会挑战选举人团认证拜登当选 川普致谢</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1251997&key=pzykfwejorbvjhqc&from=gy2">距今超万年 巨型史前岩画惊现亚马逊雨林</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1251999&key=pzykfwejorbvjhqc&from=gy2">乔治亚州又现6.5万非法选票 足以翻盘</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1251977&key=pzykfwejorbvjhqc&from=gy2">《石涛聚焦》法兰克福服务器！麦金纳吉将军：可能是三角洲部队袭击！</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1251967&key=pzykfwejorbvjhqc&from=gy2">体制内记者曝官媒内部禁谈胡锡进通奸丑闻</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1251982&key=pzykfwejorbvjhqc&from=gy2">不戴口罩狂欢！美国帅医师「左拥右抱」照曝光 遭批假面网红</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1251998&key=pzykfwejorbvjhqc&from=gy2">美国左派推“中国不是我们的敌人”背后</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1252010&key=pzykfwejorbvjhqc&from=gy2">王涵：中国民主党党员温起锋遣返中国后被捕</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1252004&key=pzykfwejorbvjhqc&from=gy2">深圳接连确诊2例中共病毒 当地紧急封村</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1252002&key=pzykfwejorbvjhqc&from=gy2">国际残疾人日 忆大陆三宗骇人案例</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1252012&key=pzykfwejorbvjhqc&from=gy2">知情人士：美国40多州正调查Facebook 计划下周提反垄断诉讼</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1251983&key=pzykfwejorbvjhqc&from=gy2">希望之声：王维洛最新揭密：三峡工程创造的利润哪去了</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1252007&key=pzykfwejorbvjhqc&from=gy2">3M宣布全球范围内裁员2900人</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1251981&key=pzykfwejorbvjhqc&from=gy2">胡锡进私生子风波舆论持续发酵 体制内却禁谈丑闻</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1251993&key=pzykfwejorbvjhqc&from=gy2">鲍威尔乔州选举诉讼案 提紧急上诉获批准</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1251975&key=pzykfwejorbvjhqc&from=gy2">【禁闻】黄之锋等3人入狱 国际声援 批港府打压</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1251985&key=pzykfwejorbvjhqc&from=gy2">广州洛溪大桥在建人行桥整段垮塌 网友：问题太多了</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1251971&key=pzykfwejorbvjhqc&from=gy2">中共求加入CPTPP 现实与目标相距比较远 成员国不是傻子</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1252011&key=pzykfwejorbvjhqc&from=gy2">刘鹤2018年在白宫附近与华尔街巨企高层会面</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1251976&key=pzykfwejorbvjhqc&from=gy2">【禁闻】抑川普褒拜登 CNN晨会录音曝光</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1252005&key=pzykfwejorbvjhqc&from=gy2">新书《铁证如山》 揭中共活摘器官罪恶</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://gfyqbljb.xlohf.cyou/?name=c1251984&key=pzykfwejorbvjhqc&from=gy2">甩锅不断促内循环？官报湖北牛肉外包装检测阳性</a></td></tr>
 
 </table>
 
