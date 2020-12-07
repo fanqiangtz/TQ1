@@ -1,45 +1,43 @@
 ## 📩请及时收藏本站 https://git.io/ynews 以免失连</a>
 ## 自救专区： [君子不立危樯之下，赶快自救保平安 ](https://github.com/pwgy/td/blob/master/README.md)
 
-## 墙外头条热度排行榜 2020年12月07日(每日更新）
+## 墙外头条热度排行榜 2020年12月08日(每日更新）
 
  <table>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253022&key=pzykfwejorbvjhqc&from=gy2">川普私人律师朱利安尼确诊中共病毒</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1252962&key=pzykfwejorbvjhqc&from=gy2">窃国 红三代吹哨证中共插手 鲍威尔有视频证据 林伍德自曝投票遭篡改</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253008&key=pzykfwejorbvjhqc&from=gy2">川普早知大选舞弊 专家：目标是引出深层政府</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253015&key=pzykfwejorbvjhqc&from=gy2">越看越惊 多猫腻与民主党水多深？ 1句话犀利总结2大阵营</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253021&key=pzykfwejorbvjhqc&from=gy2">大陆经营环境恶化 再有日企关闭深圳厂 1500多名员工将被遣散</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253012&key=pzykfwejorbvjhqc&from=gy2">许智峯：汇丰银行帐户突然被解冻 立即将积蓄转帐</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253027&key=pzykfwejorbvjhqc&from=gy2">美企业家：有100%把握川普能在未来四年连任</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253018&key=pzykfwejorbvjhqc&from=gy2">【禁闻】赵立坚推文风波 美：中共突破道德底线</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1252968&key=pzykfwejorbvjhqc&from=gy2">一家四口开心聚餐「全数中毒、1人身亡」只因吃到这种鱼</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253007&key=pzykfwejorbvjhqc&from=gy2">鲍威尔：一场高度协调 资金雄厚的大舞弊</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1252993&key=pzykfwejorbvjhqc&from=gy2">都被骗了！蓝州选民被夺投票权 拯救美国的最后防线</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253024&key=pzykfwejorbvjhqc&from=gy2">眼看少女溺亡 浙江警察辩解惹众怒</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1252969&key=pzykfwejorbvjhqc&from=gy2">几大摇摆州联手欺诈 华裔女专家惊人发现 反川华邮曝国会25个假共和党人</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253002&key=pzykfwejorbvjhqc&from=gy2">芯片缺货 大众汽车大陆车厂传停产</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253011&key=pzykfwejorbvjhqc&from=gy2">王赫：川普的双重身份及其可能选择</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253020&key=pzykfwejorbvjhqc&from=gy2">熊市近了？“巴菲特指标”亮红灯 6大隐忧蓄势待爆</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1252972&key=pzykfwejorbvjhqc&from=gy2">美国家科学院报告：定向微波攻击或为美驻中国古巴外交官病因</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253017&key=pzykfwejorbvjhqc&from=gy2">【禁闻】美直指中共是全球最大威胁 密集出拳痛击</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253004&key=pzykfwejorbvjhqc&from=gy2">中国个人破产制度试点 疫情再起或现破产潮</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253010&key=pzykfwejorbvjhqc&from=gy2">新州：中共病毒“境外输入” 究竟是谁的责任？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1252971&key=pzykfwejorbvjhqc&from=gy2">81岁妇人过世！市长突收通知「继承遗产」见620万欧元吓坏</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253026&key=pzykfwejorbvjhqc&from=gy2">日本将与美法联合军演 剑指中共</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253003&key=pzykfwejorbvjhqc&from=gy2">湖南前书记徐守盛病死 曾涉贪被举报 又炮制捧习曲</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253013&key=pzykfwejorbvjhqc&from=gy2">限制中共党员及家属入境 是取消十年签证的信号？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253006&key=pzykfwejorbvjhqc&from=gy2">章家敦警告：中共正企图制造针对特定族群的生物武器 美应防止中共取得更多美国DNA</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1252970&key=pzykfwejorbvjhqc&from=gy2">纽西兰企业「高空洒10万」做慈善！千人疯抢后都气炸</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253023&key=pzykfwejorbvjhqc&from=gy2">华人圈辩论会 赖建平谈支持川普六大理由</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1252986&key=pzykfwejorbvjhqc&from=gy2">张菁：生育率跌破警戒线 中共是祸首</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1252967&key=pzykfwejorbvjhqc&from=gy2">清竹：榜样都出来了，还等什么？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1252992&key=pzykfwejorbvjhqc&from=gy2">广东人民公厕要刷脸？ 太密集与太大量都会监管</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253025&key=pzykfwejorbvjhqc&from=gy2">判决书：原《求索》主编的情妇之一获刑8年</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1252997&key=pzykfwejorbvjhqc&from=gy2">中共火箭乱坠 要老百姓自我防护 还不许拍照</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253019&key=pzykfwejorbvjhqc&from=gy2">旧金山周日起实施新居家令 禁止户外用餐 重击华埠餐饮业</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1252985&key=pzykfwejorbvjhqc&from=gy2">鲍威尔转发翟东升视频：中共如何搞定拜登</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253014&key=pzykfwejorbvjhqc&from=gy2">纽约市公校低年级明重开 华裔家长集会要求重开所有年级</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://jbsduodh.xlohf.cyou/?name=c1253028&key=pzykfwejorbvjhqc&from=gy2">阿根廷将征百万富翁税 支应武汉肺炎医疗补给与救援</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253276&key=pzykfwejorbvjhqc&from=gy2">美国宣布制裁14名中共全国人大常委会副委员长</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253318&key=pzykfwejorbvjhqc&from=gy2">印度陆军与中共军方实力对比</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253294&key=pzykfwejorbvjhqc&from=gy2">川普政府宣布新制裁 中共人大14副委员长全上榜</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253303&key=pzykfwejorbvjhqc&from=gy2">郑纯清：左媒防火墙筑自绝墙</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253255&key=pzykfwejorbvjhqc&from=gy2">一网打尽 川普另有深远考虑 阿利托大法官提前宾州邮寄选票案文件递交截止日</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253309&key=pzykfwejorbvjhqc&from=gy2">描绘逾万年前灭绝生物 亚马逊雨林惊现巨型岩画</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253248&key=pzykfwejorbvjhqc&from=gy2">陈破空：习近平智囊惊人泄密：买通了拜登家族</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253314&key=pzykfwejorbvjhqc&from=gy2">美疫苗无分发计划？卫生部长：拜登一派胡言</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253280&key=pzykfwejorbvjhqc&from=gy2">钟原：李克强揭示中国大陆科技发展实情</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253304&key=pzykfwejorbvjhqc&from=gy2">【禁闻】鲍威尔：大量中国制假选票穿越美墨边境</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253292&key=pzykfwejorbvjhqc&from=gy2">周晓辉：叛国者正浮出水面 川普酝酿大行动</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253209&key=pzykfwejorbvjhqc&from=gy2">【大选更新12.7】川普：他在隐藏什么？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253305&key=pzykfwejorbvjhqc&from=gy2">【禁闻】川普演讲再现高潮 乔州民众力挺</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253247&key=pzykfwejorbvjhqc&from=gy2">《石涛聚焦》美国选举政变 阿利托大法官修改宾州案听证时间</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253298&key=pzykfwejorbvjhqc&from=gy2">哈佛教授：最高法或让议员选出替换选举人</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253297&key=pzykfwejorbvjhqc&from=gy2">美国家情报总监：选举舞弊解决后才能宣布赢家</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253254&key=pzykfwejorbvjhqc&from=gy2">调查：至少19间美国高科技公司直接与中共军方合作！</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253251&key=pzykfwejorbvjhqc&from=gy2">天降现金瀑布！霸气「点滴哥」冒雨守护 肉身阻挡众人捡钱</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253320&key=pzykfwejorbvjhqc&from=gy2">何方美失踪2个月 疫苗受害家长特殊方式寻找</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253289&key=pzykfwejorbvjhqc&from=gy2">中国工人乌干达集体确诊 陈时中：疫苗安全有疑虑</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253252&key=pzykfwejorbvjhqc&from=gy2">中国外资车厂因芯片短缺停产 暴露中国高端工业致命弱点</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253307&key=pzykfwejorbvjhqc&from=gy2">无尾熊挂圣诞树上以为是玩偶 屋主近看吓坏：是活的！</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253281&key=pzykfwejorbvjhqc&from=gy2">沈舟：1941年珍珠港空袭对今天的启示</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253277&key=pzykfwejorbvjhqc&from=gy2">欧盟开会商香港问题 通过马格尼茨基法案</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253321&key=pzykfwejorbvjhqc&from=gy2">七旬重庆民间演说家韩良刑满日失踪</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253267&key=pzykfwejorbvjhqc&from=gy2">欧盟通过人权法案 美国欢迎并促尽快行动</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253296&key=pzykfwejorbvjhqc&from=gy2">阻密歇根认证拜登 抗议者来到州务卿家门口</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253253&key=pzykfwejorbvjhqc&from=gy2">传港警再向银行要求冻结许智峯户口 分析指冲击香港国际金融地位</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253291&key=pzykfwejorbvjhqc&from=gy2">毒疫苗受害家长发起实拍活动 寻找何方美</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253290&key=pzykfwejorbvjhqc&from=gy2">索罗斯基金会主席进拜登团队 Smartmatic董座接棒</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253286&key=pzykfwejorbvjhqc&from=gy2">四川成都突现确诊 医院紧急停诊 小区封闭</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253287&key=pzykfwejorbvjhqc&from=gy2">深圳地铁故障上热搜 网友披露全年地铁故障大全</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253293&key=pzykfwejorbvjhqc&from=gy2">常忍：纪念人权日 追凶显正义</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://orouuzpr.xlohf.cyou/?name=c1253272&key=pzykfwejorbvjhqc&from=gy2">美国继续雄踞全球军火市场 中国超欧洲跃居第二</a></td></tr>
 
 </table>
 
