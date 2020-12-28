@@ -1,35 +1,39 @@
 ## 📩请及时收藏本站 https://git.io/ynews 以免失连</a>
 ## 自救专区： [君子不立危樯之下，赶快自救保平安 ](https://github.com/pwgy/td/blob/master/README.md)
 
-## 墙外头条热度排行榜 2020年12月27日(每日更新）
+## 墙外头条热度排行榜 2020年12月28日(每日更新）
 
  <table>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259885&key=pzykfwejorbvjhqc&from=gy2">【拍案惊奇】制造恐慌？传言成真？美加圣诞日发生爆炸</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259930&key=pzykfwejorbvjhqc&from=gy2">这是警告谁？圣诞爆炸谁干的？美智库：中共窃美国机密 交百度、阿里等分析</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259917&key=pzykfwejorbvjhqc&from=gy2">阿富汗抓10中共间谍 北京陷尴尬被要求道歉</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259919&key=pzykfwejorbvjhqc&from=gy2">北京本土病例传染源不明 “承认”输出疫情到韩国</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259918&key=pzykfwejorbvjhqc&from=gy2">大连“疫情不结束学生不离连”政策引不满</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259921&key=pzykfwejorbvjhqc&from=gy2">格雷厄姆：川普决心获得2千美元救济及取消230条</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259892&key=pzykfwejorbvjhqc&from=gy2">惊人之语：“把自己陷入绝境” 是川普必须要走的一步棋</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259945&key=pzykfwejorbvjhqc&from=gy2">传武汉天马公司核酸检测后数千人发热 党媒辟谣</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259889&key=pzykfwejorbvjhqc&from=gy2">钟原：中共政治局承认危难如“泰山压顶”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259923&key=pzykfwejorbvjhqc&from=gy2">川普政府制裁奏效 华为Q3销量「滑铁卢」</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259914&key=pzykfwejorbvjhqc&from=gy2">习近平去军队视察又掀锅盖</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259916&key=pzykfwejorbvjhqc&from=gy2">又一新当选国会议员拟联席会挑战选举人票</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259942&key=pzykfwejorbvjhqc&from=gy2">习近平提前布局 两旧部任要职</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259929&key=pzykfwejorbvjhqc&from=gy2">美媒: 中国儿童遭受着信仰迫害</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259913&key=pzykfwejorbvjhqc&from=gy2">12月26日《光明日报》聊腊肉 网友：寓意深刻</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259898&key=pzykfwejorbvjhqc&from=gy2">机关算尽自动流产？他她勾兑否决川普对纾困法案否决 民主党战略家举报拜登大选作弊</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259796&key=pzykfwejorbvjhqc&from=gy2">李正宽：天象示警 危难关头避疫良方有启示</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259920&key=pzykfwejorbvjhqc&from=gy2">美媒：康州民主党人助中共 抢海军陆战队经费</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259895&key=pzykfwejorbvjhqc&from=gy2">【2020盘点】中共八大战狼惹风波（上）</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259896&key=pzykfwejorbvjhqc&from=gy2">误判习近平：后冷战时代美国最大的战略失算？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259911&key=pzykfwejorbvjhqc&from=gy2">工人地下道拾获12万美元金条 警：没人领就归他</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259888&key=pzykfwejorbvjhqc&from=gy2">视频记录揭中共入侵印度</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259897&key=pzykfwejorbvjhqc&from=gy2">阿富汗逮捕10名中共间谍 要求北京道歉</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259944&key=pzykfwejorbvjhqc&from=gy2">台湾宜兰法轮功学员恭贺李洪志师父新年好</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259922&key=pzykfwejorbvjhqc&from=gy2">日本28日起暂停全球新入境申请 11国商务客不受限</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://mycjmssj.zggfd.cyou/?name=c1259908&key=pzykfwejorbvjhqc&from=gy2">80岁成都富商身家10亿 妻却两度诉离…竟是为了这原因</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260189&key=pzykfwejorbvjhqc&from=gy2">彭斯一举 定乾坤？美选举法学者​​​​​​​：1月6号彭斯有绝对权威 让川普获胜</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260225&key=pzykfwejorbvjhqc&from=gy2">江泽民亲信儿子忽落马 北京抵制强拆一夜现毒咒 不敢提牌子 上海开打疫苗</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260210&key=pzykfwejorbvjhqc&from=gy2">习近平一席话洩危机 高科技公司纷纷卖白菜 川普制裁 超百名小粉红三退</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260191&key=pzykfwejorbvjhqc&from=gy2">川普推荐视频  窃选背后黑手是中共</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260193&key=pzykfwejorbvjhqc&from=gy2">金言：天降陨石 世界惊现千年未有之变局</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260216&key=pzykfwejorbvjhqc&from=gy2">【禁闻】中共老党员执掌英国诺丁汉大学12载</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260188&key=pzykfwejorbvjhqc&from=gy2">大陆中共病毒疫情升温 多地取消跨年活动</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260223&key=pzykfwejorbvjhqc&from=gy2">庞贝人伙食！古城小吃摊出土 2000年前葡萄酒竟加这些</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260219&key=pzykfwejorbvjhqc&from=gy2">【禁闻】北京疫情扩散 离京须审批 顺义进战时状态</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260205&key=pzykfwejorbvjhqc&from=gy2">辽宁开原发生随机砍人案 7死7伤 凶男被抓</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260222&key=pzykfwejorbvjhqc&from=gy2">密歇根州欲制裁状告大选舞弊的律师 川普回应</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260226&key=pzykfwejorbvjhqc&from=gy2">沈舟：盘点2020中共军队的九大败笔</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260227&key=pzykfwejorbvjhqc&from=gy2">陆媒：游族CEO林奇体内查出多种毒药 被下毒近百次</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260217&key=pzykfwejorbvjhqc&from=gy2">【禁闻】这些年因言获罪的高校教师们</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260224&key=pzykfwejorbvjhqc&from=gy2">平安夜喜收神秘耶老大礼 加拿大居民：哭了一早上</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260200&key=pzykfwejorbvjhqc&from=gy2">蚂蚁集团再被“奉旨”约谈：藐视监管 需做5项整改</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260206&key=pzykfwejorbvjhqc&from=gy2">蚂蚁集团被指“藐视监管”勒令整改</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260192&key=pzykfwejorbvjhqc&from=gy2">王友群：我的老领导刘丽英一家文革蒙难记</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260208&key=pzykfwejorbvjhqc&from=gy2">中国出台长江保护法 扬子江禁渔十年</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260213&key=pzykfwejorbvjhqc&from=gy2">圣诞爆炸：自杀式汽车炸弹 疑涉5G网络监视国民</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260218&key=pzykfwejorbvjhqc&from=gy2">【禁闻】阿富汗抓10中共间谍 北京被要求道歉</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260204&key=pzykfwejorbvjhqc&from=gy2">黑龙江鹤岗市数十名法轮功学员遭绑架</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260214&key=pzykfwejorbvjhqc&from=gy2">加州受疫情打击至巨 经济反弹倒数第七</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260215&key=pzykfwejorbvjhqc&from=gy2">波兰拟施新法 反制脸书推特等巨头言论审查</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260209&key=pzykfwejorbvjhqc&from=gy2">美国人网购暴增 惟退货潮恐令零售商吃不消</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260221&key=pzykfwejorbvjhqc&from=gy2">澳龙虾遭中国抵制 民众相挺抢买 几乎天天「卖光光」</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260228&key=pzykfwejorbvjhqc&from=gy2">12月27日维权动态</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260212&key=pzykfwejorbvjhqc&from=gy2">长沙警察欺骗性“取证” 迫害法轮功学员</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260220&key=pzykfwejorbvjhqc&from=gy2">摩尔：纾困案含多笔浪费开支 应包括减税</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://wckmslhn.zggfd.cyou/?name=c1260234&key=pzykfwejorbvjhqc&from=gy2">任世豪：“禁圣诞节、庆伟人节”的红色荒谬</a></td></tr>
 
 </table>
 
