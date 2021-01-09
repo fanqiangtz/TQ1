@@ -1,42 +1,40 @@
 ## 📩请及时收藏本站 https://git.io/ynews 以免失连</a>
 ## 自救专区： [君子不立危樯之下，赶快自救保平安 ](https://github.com/pwgy/td/blob/master/README.md)
 
-## 墙外头条热度排行榜 2021年01月08日(每日更新）
+## 墙外头条热度排行榜 2021年01月09日(每日更新）
 
  <table>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264358&key=pzykfwejorbvjhqc&from=gy2">白宫官员忙着辞职 而真相是这样的</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264362&key=pzykfwejorbvjhqc&from=gy2">美国会警察调查枪击致死案 死者家人发声</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264341&key=pzykfwejorbvjhqc&from=gy2">史上最严厉封锁？全民禁足3个月 违者狠罚</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264361&key=pzykfwejorbvjhqc&from=gy2">石家庄封城 进京大堵车 各地倡“就地过年”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264360&key=pzykfwejorbvjhqc&from=gy2">美议员质疑国会袭击案：我被提前两天预告</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264327&key=pzykfwejorbvjhqc&from=gy2">赵小兰将辞去运输部长 国会暴动后首位内阁请辞</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264297&key=pzykfwejorbvjhqc&from=gy2">网曝习近平所到之处成景点  网友：揭过的锅盖呢？（多图）</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264356&key=pzykfwejorbvjhqc&from=gy2">保拜登就职？华盛顿市长将公共紧急状态延长15天</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264340&key=pzykfwejorbvjhqc&from=gy2">美资深媒体人吁美国人民击败中共</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264359&key=pzykfwejorbvjhqc&from=gy2">人民币飙升 中国家电企业“白忙活”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264314&key=pzykfwejorbvjhqc&from=gy2">袁斌：不管大选结果如何 民众的义举将载入史册</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264326&key=pzykfwejorbvjhqc&from=gy2">钟原：中共迫不及待挑衅 实为新年大昏招</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264347&key=pzykfwejorbvjhqc&from=gy2">中共截湄公河6日后 通知下游国家限水20天</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264351&key=pzykfwejorbvjhqc&from=gy2">极简小说：与神同行，人类续章(二篇)</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264339&key=pzykfwejorbvjhqc&from=gy2">美大学教授：谁是国会大厦暴乱的受益者？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264315&key=pzykfwejorbvjhqc&from=gy2">视频：彭斯主持联席会议不许辩论 把议员赶到国会走廊 关起门给拜登站台</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264302&key=pzykfwejorbvjhqc&from=gy2">“冲击”国会大事件似乎早有预谋？NPR暴露了</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264301&key=pzykfwejorbvjhqc&from=gy2">美媒：华尔街大银行谴责美国国会大厦的抗议者【阿波罗网编译】</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264303&key=pzykfwejorbvjhqc&from=gy2">美议员质疑国会袭击案：我被提前两天预告</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264309&key=pzykfwejorbvjhqc&from=gy2">盖世英雄！佛州众议员马特·盖茨1月6日挑战演讲 【阿波罗网编译】</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264365&key=pzykfwejorbvjhqc&from=gy2">英媒：146位国会议员挑战拜登胜利 面临驱逐被冠以&#039;叛国预备党&#039;【阿波罗网编译】</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264305&key=pzykfwejorbvjhqc&from=gy2">【中国禁闻】1月7日完整版</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264337&key=pzykfwejorbvjhqc&from=gy2">约翰逊：各州需调查选举违规 重拾大选权力</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264325&key=pzykfwejorbvjhqc&from=gy2">石家庄一日突增50确诊 全城封闭 车人禁离境（多视频）</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264318&key=pzykfwejorbvjhqc&from=gy2">视频疯传 黑人警察带领安提法们进入楼上的国会会议厅</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264320&key=pzykfwejorbvjhqc&from=gy2">蓬佩奥誓言制裁 港驻美贸易代表面临限制</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264328&key=pzykfwejorbvjhqc&from=gy2">长沙「假名媛」吃5千霸王餐 还借走600元</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264348&key=pzykfwejorbvjhqc&from=gy2">钟原：中共政治局常委会议新年透隐忧</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264366&key=pzykfwejorbvjhqc&from=gy2">中国人被卡住了脖子 饭碗已经端在别人手中</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264343&key=pzykfwejorbvjhqc&from=gy2">学者：反美主义卷土重来 美国民主危在旦夕</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264342&key=pzykfwejorbvjhqc&from=gy2">谢田：美国首都华盛顿1月6日纪实——国运逆转</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264338&key=pzykfwejorbvjhqc&from=gy2">克鲁兹批谷歌推特等科技巨头滥用网络影响力</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://ebgplfad.zggfd.cyou/?name=c1264307&key=pzykfwejorbvjhqc&from=gy2">宇明：作恶必偿</a></td></tr>
+
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264673&key=pzykfwejorbvjhqc&from=gy2">北京下令严控媒体报道阿里巴巴 或已升格政治事件？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264764&key=pzykfwejorbvjhqc&from=gy2">川普为干一件大事 深深激怒了那群政客</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264745&key=pzykfwejorbvjhqc&from=gy2">川普慰支持者：将在未来拥有“巨大发声”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264724&key=pzykfwejorbvjhqc&from=gy2">川普总统在憋大招？美国代理国防部长露端倪；佩洛西弹劾川普 彭斯什么态度？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264712&key=pzykfwejorbvjhqc&from=gy2">习近平风水出大事！黄创夏惊曝：「龙兴之地」有状况</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264765&key=pzykfwejorbvjhqc&from=gy2">大雪中千万别开！ 达人警告：电动车在寒区有致命缺点</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264759&key=pzykfwejorbvjhqc&from=gy2">146位议员面临政治清算 极左派逼克鲁兹霍利辞职</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264760&key=pzykfwejorbvjhqc&from=gy2">梦想当暴君的米歇尔·奥巴马 呼吁科技公司永久禁川【阿波罗网编译】</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264758&key=pzykfwejorbvjhqc&from=gy2">任志强好友放炮：做长租公寓的非傻即骗</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264774&key=pzykfwejorbvjhqc&from=gy2">佩洛西等多议员笔电在国会骚乱中被盗</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264761&key=pzykfwejorbvjhqc&from=gy2">2020年人类在神秘太空发现了啥</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264723&key=pzykfwejorbvjhqc&from=gy2">终于有句公道话了 芝加哥警察联盟主席：“没有纵火……抢劫……”【阿波罗网编译】</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264678&key=pzykfwejorbvjhqc&from=gy2">【禁闻】中共前司法部长犯罪 被举报至29国政府</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264692&key=pzykfwejorbvjhqc&from=gy2">众议院助理议长：川普弹劾案 最早下周在众议院投票【阿波罗网编译】</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264679&key=pzykfwejorbvjhqc&from=gy2">【禁闻】疫情告急 河北封城扩大 北京人禁止出京</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264677&key=pzykfwejorbvjhqc&from=gy2">周晓辉：北京重启中美关系有算盘 折射其困境</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264763&key=pzykfwejorbvjhqc&from=gy2">一觉醒来帐户多了100万英镑 银行打包票：放心花</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264762&key=pzykfwejorbvjhqc&from=gy2">奇特的取暖方式 骑三轮车一圈一圈的转</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264771&key=pzykfwejorbvjhqc&from=gy2">金融时报：马云事件可能有中共高层政治背景</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264778&key=pzykfwejorbvjhqc&from=gy2">苦胆：“川”流不息</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264776&key=pzykfwejorbvjhqc&from=gy2">苹果威胁要禁止Parler 除非同意大技术寡头的严厉审查制度【阿波罗网编译】</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264747&key=pzykfwejorbvjhqc&from=gy2">前大陆资深记者驾车横跨美国 华府反共挺正义</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264773&key=pzykfwejorbvjhqc&from=gy2">北京疫情趋紧，教堂被关，道路被封</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264725&key=pzykfwejorbvjhqc&from=gy2">中国疫情升温！河北通报127例 石家庄、邢台禁人车出市</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264743&key=pzykfwejorbvjhqc&from=gy2">美前检察官：第25条修正案不适用于川普</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264714&key=pzykfwejorbvjhqc&from=gy2">ABC新闻政治总监大谈把川普支持者“清洗”出美国 被右派指太希特勒【阿波罗网编译】</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264676&key=pzykfwejorbvjhqc&from=gy2">极寒冷冬 继北京后 上海等地也突发停电</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264742&key=pzykfwejorbvjhqc&from=gy2">因挑战选举人团被定义成煽动叛乱 霍利遭报复起诉出版商</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264722&key=pzykfwejorbvjhqc&from=gy2">窃选是更大威胁 民调：45％共和党人支持进入国会大厦的抗议行动【阿波罗网编译】</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://aifnefwi.zggfd.cyou/?name=c1264741&key=pzykfwejorbvjhqc&from=gy2">拜登贺锦丽批冲击国会者享双标执法 舆论反弹</a></td></tr>
 
 </table>
 
