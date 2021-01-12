@@ -1,38 +1,34 @@
 ## 📩请及时收藏本站 https://git.io/ynews 以免失连</a>
 ## 自救专区： [君子不立危樯之下，赶快自救保平安 ](https://github.com/pwgy/td/blob/master/README.md)
 
-## 墙外头条热度排行榜 2021年01月12日(每日更新）
+## 墙外头条热度排行榜 2021年01月13日(每日更新）
 
  <table>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265732&key=pzykfwejorbvjhqc&from=gy2">美第一夫人发表“我们的前进道路”声明</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265738&key=pzykfwejorbvjhqc&from=gy2">前国会警察局长：时间证明川普“煽动&quot;国会大厦事件的说法不成立【阿波罗网编译】</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265788&key=pzykfwejorbvjhqc&from=gy2">共和党叫停民主党首次罢免川普表决</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265807&key=pzykfwejorbvjhqc&from=gy2">FBI警告：某些团体计划在全美50州首府以及华府发动武装抗议</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265789&key=pzykfwejorbvjhqc&from=gy2">白宫贸易顾问纳瓦罗：习近平借马云“杀鸡儆猴”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265745&key=pzykfwejorbvjhqc&from=gy2">清竹：自由民主灯塔已灭，大疫将至，咋办？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265799&key=pzykfwejorbvjhqc&from=gy2">洪达：民调透露的人心归向</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265770&key=pzykfwejorbvjhqc&from=gy2">美最高法院拒绝快速审理5个州大选结果</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265771&key=pzykfwejorbvjhqc&from=gy2">美第一夫人发表“我们的前进道路”声明</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265768&key=pzykfwejorbvjhqc&from=gy2">全美规模最大电台节目公司 下令不得再宣扬选举阴谋论</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265787&key=pzykfwejorbvjhqc&from=gy2">贵州传统市场买青葱 纸巾擦拭惊见「掉漆」</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265756&key=pzykfwejorbvjhqc&from=gy2">做跟瘟疫无关的人</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265794&key=pzykfwejorbvjhqc&from=gy2">山西失守 传晋中市现确诊者 全员核酸检测</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265797&key=pzykfwejorbvjhqc&from=gy2">贵州多地市场现染色葱 用纸一擦会掉色</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265812&key=pzykfwejorbvjhqc&from=gy2">法国政界一致谴责社交网络巨头封闭川普账号</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265793&key=pzykfwejorbvjhqc&from=gy2">疫情爆发 北京封国道 河北逾千民齐吼：放行</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265803&key=pzykfwejorbvjhqc&from=gy2">Parler或被封杀至破产 美议员吁调查科技巨头</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265755&key=pzykfwejorbvjhqc&from=gy2">研究：武汉76%染疫者出院半年后仍有后遗症</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265811&key=pzykfwejorbvjhqc&from=gy2">反抗FB网络霸权 叶蕴仪支持“社交移民”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265749&key=pzykfwejorbvjhqc&from=gy2">石家庄疫情不断扩大南宫市亦失守 河北疑隐疫情切进京交通</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265734&key=pzykfwejorbvjhqc&from=gy2">【禁闻】上海人实名举报中共活摘器官罪行</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265764&key=pzykfwejorbvjhqc&from=gy2">川普帐号被封 默克尔：言论自由不应社群老板决定</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265747&key=pzykfwejorbvjhqc&from=gy2">禁川普不禁恶名昭彰独裁者 推特股价崩跌10%</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265790&key=pzykfwejorbvjhqc&from=gy2">石家庄病例关联武汉上热搜 网友忧武汉二次封城</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265761&key=pzykfwejorbvjhqc&from=gy2">马云「被消失」？日媒警告习近平将付惨痛代价 重创中国</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265758&key=pzykfwejorbvjhqc&from=gy2">金言：沈阳惊现“毒王” 一人毁一座城</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265775&key=pzykfwejorbvjhqc&from=gy2">美议员：川普无意辞职 也不会离开公众舞台</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265762&key=pzykfwejorbvjhqc&from=gy2">吉尔吉斯暴动推翻亲中共政权后 爱国党贾帕洛夫拿下近8成选票</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://dzkkmfus.zggfd.cyou/?name=c1265801&key=pzykfwejorbvjhqc&from=gy2">服务器突遭关闭 Parler起诉亚马逊</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266155&key=pzykfwejorbvjhqc&from=gy2">中国疫情扩散中迎接「春运」 印度神童预言2月有「毁灭性灾难」</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266105&key=pzykfwejorbvjhqc&from=gy2">【禁闻】蓬佩奥：中共已进美国门内 真面目被揭穿</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266151&key=pzykfwejorbvjhqc&from=gy2">美国务院取消所有出访计划 驻联合国大使将不访台</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266189&key=pzykfwejorbvjhqc&from=gy2">美电商巨头：共产党正在接管美国</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266119&key=pzykfwejorbvjhqc&from=gy2">单宜扬：为什么疫情总在这几个省反复？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266167&key=pzykfwejorbvjhqc&from=gy2">封的是总统，葬的是自己，害的是美国</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266181&key=pzykfwejorbvjhqc&from=gy2">美边境负责人：拜登开放边界将威胁经济国安</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266142&key=pzykfwejorbvjhqc&from=gy2">川普斥弹劾荒谬并激起极大愤怒 科技巨头犯了灾难性的错误</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266179&key=pzykfwejorbvjhqc&from=gy2">国会骚乱疑云重重 警察局长曝要求增援被拒</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266161&key=pzykfwejorbvjhqc&from=gy2">受川普支持者追捧 Telegram美国下载量暴涨</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266108&key=pzykfwejorbvjhqc&from=gy2">关闭川普账号引发“地震” 欧盟委员会专员：社交网络的九一一</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266103&key=pzykfwejorbvjhqc&from=gy2">【禁闻】河北疫情急剧升温 石家庄2万人被转移</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266131&key=pzykfwejorbvjhqc&from=gy2">美公共电视网首席法律顾问 鼓吹把川普支持者子女都送到“再教育集中营” 【阿波罗网编译】</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266177&key=pzykfwejorbvjhqc&from=gy2">石家庄疫情恶化 逾2万人被拉走隔离 亲历者讲述近况</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266096&key=pzykfwejorbvjhqc&from=gy2">翻云覆雨！多年来西方主流媒体鼓吹暴力抗议 如今倒打一耙【阿波罗网编译】</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266159&key=pzykfwejorbvjhqc&from=gy2">蓬佩奥：美绥靖政策助中共猖狂 川普政府逆转</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266164&key=pzykfwejorbvjhqc&from=gy2">保北京 廊坊封城 入京道路全封闭 民众恐慌</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266158&key=pzykfwejorbvjhqc&from=gy2">吉林通化爆疫情尚未官宣 确诊者信息已泄露</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1265997&key=pzykfwejorbvjhqc&from=gy2">【疫情1·12】全球死亡人数逼近200万</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266148&key=pzykfwejorbvjhqc&from=gy2">马云失踪 众说纷纭 高瑜：凶多吉少</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266154&key=pzykfwejorbvjhqc&from=gy2">纸牌屋在坍塌 人心所向 硅谷一半人要逃离科技寡头；美国大选 如今能得出一个结论</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266102&key=pzykfwejorbvjhqc&from=gy2">疫情之下 北京、河北等地又遭遇沙尘天</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266170&key=pzykfwejorbvjhqc&from=gy2">中共“教育转化”下的酷刑（2）</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266197&key=pzykfwejorbvjhqc&from=gy2">藁城二万村民异地隔离 无极中学深夜腾位</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://pphkhsox.zggfd.cyou/?name=c1266136&key=pzykfwejorbvjhqc&from=gy2">【一线采访】石家庄疫情失控 藁城区集中爆发</a></td></tr>
 
 </table>
 
