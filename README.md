@@ -40,6 +40,9 @@
 
 </table>
 
+# <img src="https://github.com/fqtz/pic/blob/main/T101-1.JPG"> 
+# 微信掃碼進群
+
  ## 自救专区： [君子不立危樯之下，赶快自救保平安🍎 快快快 📩](https://github.com/pwgy/td/blob/master/README.md)
  
 <table>
