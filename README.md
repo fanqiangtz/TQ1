@@ -34,7 +34,8 @@
 <tr><td colspan="2" align="left"><a href="https://orcndjmx.zggfd.cyou/?name=c1267377&key=pzykfwejorbvjhqc&from=gy2">石家庄疫情传入浙江 官方通报引来满屏质疑</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://orcndjmx.zggfd.cyou/?name=c1267381&key=pzykfwejorbvjhqc&from=gy2">缺电之后中国再传水荒 浙江惊现“凭票供水”</a></td></tr>
 <tr><td colspan="2" align="left"><a href="https://orcndjmx.zggfd.cyou/?name=c1267401&key=pzykfwejorbvjhqc&from=gy2">美国会报告：中共迫害人权 2020年登峰造极</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://orcndjmx.zggfd.cyou/?name=c1267333&key=pzykfwejorbvjhqc&from=gy2">【禁闻】反制中共统战 学者：斩断金脉</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://u.nu/ads">【禁闻】反制中共统战 学者：斩断金脉</a></td></tr>
+ 
 
 </table>
 
