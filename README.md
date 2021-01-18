@@ -1,43 +1,34 @@
 ## 📩请及时收藏本站 https://git.io/ynews 以免失连</a>
 ## 自救专区： [君子不立危樯之下，赶快自救保平安 ](https://github.com/pwgy/td/blob/master/README.md)
 
-## 墙外头条热度排行榜 2021年01月17日(每日更新）
+## 墙外头条热度排行榜 2021年01月18日(每日更新）
 
  <table>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267755&key=qfahckuvbefdvfja&from=gy2">蓬佩奥的对华宣言能成为下届政府对华的政策吗？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267767&key=qfahckuvbefdvfja&from=gy2">参议员：若执意定罪川普 1/3人会退出共和党 会毁掉这个党</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267773&key=qfahckuvbefdvfja&from=gy2">中国疫情严重 河北廊坊等地出现“随地倒”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267769&key=qfahckuvbefdvfja&from=gy2">传川普与顾问密斟 狙击倒戈共和党议员</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267774&key=qfahckuvbefdvfja&from=gy2">颜纯钩：没有特朗普，台港就不是今日模样</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267777&key=qfahckuvbefdvfja&from=gy2">新疆乌鲁木齐火流星照亮天空  陨石猎人出动（视频）</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267771&key=qfahckuvbefdvfja&from=gy2">网友曝绥化上月已现路倒 质疑疫情被瞒2周(视频)</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267776&key=qfahckuvbefdvfja&from=gy2">白宫公布川普总统四年执政成绩单</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267706&key=qfahckuvbefdvfja&from=gy2">“邪恶脸书恢复了川普总统账号 仍是总统的川普成了‘政治候选人’”【阿波罗网编译】</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267764&key=qfahckuvbefdvfja&from=gy2">一线采访：石家庄封城 数千外地中专生被困</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267747&key=qfahckuvbefdvfja&from=gy2">继强推汉语教学后 中共再废内蒙历史教材</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267778&key=qfahckuvbefdvfja&from=gy2">李正宽：古今瘟疫有前鉴 躲过劫难藏秘诀</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267741&key=qfahckuvbefdvfja&from=gy2">“永不川普”创始人约翰·威弗承认对年轻男子发送不适当短信的指控 【阿波罗网编译】</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267766&key=qfahckuvbefdvfja&from=gy2">美中贸易协议一周年 中共承诺采购未达标</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267705&key=qfahckuvbefdvfja&from=gy2">民主党宾州州长：你无权说选举被操纵，这是“不受保护的言论”川普也一样【阿波罗网编译】</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267765&key=qfahckuvbefdvfja&from=gy2">“就地过年” 春运铁路客流少一亿 机票滞销</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267714&key=qfahckuvbefdvfja&from=gy2">觅真：164名中共高官的可悲下场</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267727&key=qfahckuvbefdvfja&from=gy2">在不同场合错话连篇 日本盛传菅义伟健康不安说</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267742&key=qfahckuvbefdvfja&from=gy2">帕拉（Parler）收到死亡威胁后 CEO一家被迫离家躲藏 【阿波罗网编译】</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267763&key=qfahckuvbefdvfja&from=gy2">投资者预计拜登不太可能改川普对华禁令</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267779&key=qfahckuvbefdvfja&from=gy2">杨威：中共党媒谈外交 给习近平挖大坑？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267743&key=qfahckuvbefdvfja&from=gy2">挪威惊传23人接种疫苗后身亡 卫生官员曝2大族群接种风险极高</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267708&key=qfahckuvbefdvfja&from=gy2">美国联邦众议员麦考尔：“必须阻止用美国纳税人的钱支持中共独裁政权</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267772&key=qfahckuvbefdvfja&from=gy2">Parler行政总裁称接死亡恐吓 控告亚马逊违反反垄断法</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267703&key=qfahckuvbefdvfja&from=gy2">【一线采访】石家庄核酸检测 市民忧交叉感染</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267753&key=qfahckuvbefdvfja&from=gy2">杨威：中共党媒谈外交 给习近平挖大坑？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267768&key=qfahckuvbefdvfja&from=gy2">俄罗斯突加征出口税 芝加哥小麦期货创6年新高</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267711&key=qfahckuvbefdvfja&from=gy2">中共军机扰台遭驱离后爆粗口 网民谴责</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267724&key=qfahckuvbefdvfja&from=gy2">乔拜登上任首日政策  推行男女同厕【阿波罗网记者李文波编译】</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267704&key=qfahckuvbefdvfja&from=gy2">刘青：世卫中国调查会有何结果</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267762&key=qfahckuvbefdvfja&from=gy2">专家：川普黑名单恐让中共大型客机梦想胎死腹中</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267761&key=qfahckuvbefdvfja&from=gy2">网传大陆居家隔离者遛狗绝招</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267752&key=qfahckuvbefdvfja&from=gy2">郭军：为何美国不会成为社会主义中国</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1267759&key=qfahckuvbefdvfja&from=gy2">网曝河北隆尧县现确诊 全城重新封闭 官媒消声</a></td></tr>
+<<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268077&key=qfahckuvbefdvfja&from=gy2">非法移民大军来了！拜登将上任 洪都拉斯逾9000人将赴美</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268080&key=qfahckuvbefdvfja&from=gy2">白宫整理川普私物竟发现「川普之鎚」 引起众人热议</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268090&key=qfahckuvbefdvfja&from=gy2">疑官方隐瞒河北疫情 副省长卫健委数据打架</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268067&key=qfahckuvbefdvfja&from=gy2">大陆医生：中共一年杀掉你们十几万</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268074&key=qfahckuvbefdvfja&from=gy2">FBI前局长：不应起诉川普 否则「川普秀」恐再持续数年</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268051&key=qfahckuvbefdvfja&from=gy2">河北石家庄染疫人数攀升 传武警支援</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268089&key=qfahckuvbefdvfja&from=gy2">时局看点：习近平召高官开研讨会生是非</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268088&key=qfahckuvbefdvfja&from=gy2">疫情爆发 四川悬赏抓捕非法入境者</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268068&key=qfahckuvbefdvfja&from=gy2">波兰最高法院裁定不向中国引渡瑞典法轮功学员李志辉</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268072&key=qfahckuvbefdvfja&from=gy2">美检方撤回对川普支持者袭击国会图谋暗杀议员无证据指控</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268061&key=qfahckuvbefdvfja&from=gy2">【中国禁闻】1月17日完整版 (30)</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268050&key=qfahckuvbefdvfja&from=gy2">【禁闻】中共洗钱规模惊人 美财政部展开调查</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268076&key=qfahckuvbefdvfja&from=gy2">脸书宣布禁美国境内武器配件与防护装备广告</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268086&key=qfahckuvbefdvfja&from=gy2">以色列示警：拜登与伊朗已就恢复核协议进行对话</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268053&key=qfahckuvbefdvfja&from=gy2">中国一分钟：中国菜价节节攀升 摊商：几乎一天一个价</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268071&key=qfahckuvbefdvfja&from=gy2">中国制洗手液不能杀菌又含毒 英国紧急召回</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268065&key=qfahckuvbefdvfja&from=gy2">清竹：中国疫苗是在救人 还是在害人？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268075&key=qfahckuvbefdvfja&from=gy2">林书豪弃中国高薪重返NBA 「渴望有所作为」</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268102&key=qfahckuvbefdvfja&from=gy2">津巴布韦国防部长指责中国是新冠肺炎源头</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268095&key=qfahckuvbefdvfja&from=gy2">“比疫情吓人的是物价”陆网民哭诉菜价疯涨</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268062&key=qfahckuvbefdvfja&from=gy2">疑官方隐瞒河北疫情 副省长卫健委数据打架</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268091&key=qfahckuvbefdvfja&from=gy2">专访Bill Gertz：中共无孔不入渗透美国</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268085&key=qfahckuvbefdvfja&from=gy2">被冷静期害死 湖北女离婚不成反被丈夫狂砍19刀身亡</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1268099&key=qfahckuvbefdvfja&from=gy2">罗斯柴尔德集团董事长本杰明去世</a></td></tr>
+
 </table>
 
 
