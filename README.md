@@ -1,37 +1,39 @@
 ## 📩请及时收藏本站 https://git.io/ynews 以免失连</a>
 ## 自救专区： [君子不立危樯之下，赶快自救保平安 ](https://github.com/pwgy/td/blob/master/README.md)
 
-## 墙外头条热度排行榜 2021年01月28日(每日更新）
+## 墙外头条热度排行榜 2021年01月29日(每日更新）
 
  <table>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274105&key=qfahckuvbefdvfja&from=gy2">习近平女儿及姐夫个资泄露 24网民被判刑</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274187&key=qfahckuvbefdvfja&from=gy2">中共二十大倒计时 这两人动向“格外重要”</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274185&key=qfahckuvbefdvfja&from=gy2">住家怪声频传 众人以为闹鬼…挖开下水道大惊：成精了</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274192&key=qfahckuvbefdvfja&from=gy2">北京新增肛门检测 民众不堪受辱网上炮轰</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274176&key=qfahckuvbefdvfja&from=gy2">钟原：拜登的耐心能克习近平的定力吗？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274188&key=qfahckuvbefdvfja&from=gy2">被封锁的“棺材房”：禁足令暴露香港社会不平等</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274177&key=qfahckuvbefdvfja&from=gy2">哈尔滨一单元疑被遗弃 居民喊我要做检测(视频)</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274170&key=qfahckuvbefdvfja&from=gy2">黑利：拜登若加入人权理事会 将违背初衷</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274115&key=qfahckuvbefdvfja&from=gy2">北京新增肛门检测新冠 民众感侮辱放弃进京过年</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274184&key=qfahckuvbefdvfja&from=gy2">YouTube将川普无限期停权！禁朱利安尼藉影片分享收益</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274173&key=qfahckuvbefdvfja&from=gy2">刚解封三天 河北定州现确诊病例又封城</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274114&key=qfahckuvbefdvfja&from=gy2">食品价格成倍暴涨 中国大范围失业受双重打击</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274130&key=qfahckuvbefdvfja&from=gy2">路透社：「骄傲男孩」首领曾是FBI卧底线民 多次协助办案侦查</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274167&key=qfahckuvbefdvfja&from=gy2">威斯康星州参议院投票 废除州长全州口罩令</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274193&key=qfahckuvbefdvfja&from=gy2">当局防疫高压下 7成中国劳工放弃回家过年</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274181&key=qfahckuvbefdvfja&from=gy2">家暴悲剧何日止息：谭维维唱出“小娟”的哀歌</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274183&key=qfahckuvbefdvfja&from=gy2">习近平“反对恃强凌弱” 引发全球讥讽</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274199&key=qfahckuvbefdvfja&from=gy2">女子微信&quot;4字&quot;骂书记秒被抓！官方回应惹众怒</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274204&key=qfahckuvbefdvfja&from=gy2">第二王后？泰王有搞出&quot;惊世骇俗&quot;之举</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274131&key=qfahckuvbefdvfja&from=gy2">李承鹏:你的2020年还没过去</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274178&key=qfahckuvbefdvfja&from=gy2">与普京谈了什么？ 拜登一句话应付记者</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274142&key=qfahckuvbefdvfja&from=gy2">【重播】美国务卿布林肯首次媒体发布会</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274191&key=qfahckuvbefdvfja&from=gy2">大陆各港口滞留大量进口食品 等待病毒检测</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274156&key=qfahckuvbefdvfja&from=gy2">马云：特权阶级有特供水、食物 但没有特供空气</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274127&key=qfahckuvbefdvfja&from=gy2">拜登上台 旧金山市长布里德宣布：户外用餐1</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274194&key=qfahckuvbefdvfja&from=gy2">【秦鹏直播】德州受够了 联邦议员就“独立问题”提人民公投法案</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274125&key=qfahckuvbefdvfja&from=gy2">【中国禁闻】1月27日完整版</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274107&key=qfahckuvbefdvfja&from=gy2">【禁闻】上百名专家呼吁欧盟：搁置欧中投资协定</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274514&key=qfahckuvbefdvfja&from=gy2">清竹：中共国的贪官为什么越抓越多？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274542&key=qfahckuvbefdvfja&from=gy2">拜登新任商务部长 惊传拒将中资列入国安问题引爆共和党怒火</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274561&key=qfahckuvbefdvfja&from=gy2">习近平中纪委撂重话 20大前酝酿政治风暴？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274602&key=qfahckuvbefdvfja&from=gy2">【秦鹏直播】“韭菜割镰刀”大戏进新高潮 白宫叫停</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274583&key=qfahckuvbefdvfja&from=gy2">竞争不过国外疫苗 党媒集体撒谎扭曲报导</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274581&key=qfahckuvbefdvfja&from=gy2">支付宝等平台存款全下架 近2万亿回流银行体系</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274566&key=qfahckuvbefdvfja&from=gy2">上海疫情告急？传抢建方舱医院 河北保定封城</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274599&key=qfahckuvbefdvfja&from=gy2">新州：中共病毒多变 救命秘方不变</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274594&key=qfahckuvbefdvfja&from=gy2">深圳掀外商撤离潮 中国好生意的黄金年代不再</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274584&key=qfahckuvbefdvfja&from=gy2">陈光诚：中共惯用手法：先绑架酷刑再捏造罪名</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274595&key=qfahckuvbefdvfja&from=gy2">中电信、中移动：公司被列入美国限制名单3月9日生效</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274547&key=qfahckuvbefdvfja&from=gy2">支付宝等互联网存款突然下线 2万亿回填银行缺口</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274539&key=qfahckuvbefdvfja&from=gy2">川普卸任后权力仍强大 CNN：共和党议员不敢得罪、麦卡锡周四去「朝圣」</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274536&key=qfahckuvbefdvfja&from=gy2">分析：中国4000亿美元外汇去了哪里？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274551&key=qfahckuvbefdvfja&from=gy2">袁斌：信访局长狂言“老弱病残孕要往死里打”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274593&key=qfahckuvbefdvfja&from=gy2">香港或不承认双国籍 30万加港双国籍人面临抉择</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274563&key=qfahckuvbefdvfja&from=gy2">郑爽被曝雇水军 20条50字以上洗白评论568元</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274541&key=qfahckuvbefdvfja&from=gy2">外型像板栗还散发清香 武汉大妈尝铁树果 中毒送医</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274588&key=qfahckuvbefdvfja&from=gy2">2斤鱿鱼一下锅「整只消失」 她傻眼：8分钟后连渣都不剩</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274586&key=qfahckuvbefdvfja&from=gy2">六州检察长致信拜登：如果违宪 将遭诉讼</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274516&key=qfahckuvbefdvfja&from=gy2">支付宝等互联网存款全线关闭 腾出两万亿填银行体系资金缺口</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274543&key=qfahckuvbefdvfja&from=gy2">美国务院拒中共声索南海主权 布林肯：支持东南亚国家抗中共</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274567&key=qfahckuvbefdvfja&from=gy2">德州总检察长: 拜登移民政策将带来中共病毒等真正问题</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274537&key=qfahckuvbefdvfja&from=gy2">【一线采访】通化人批政府无能 配送不到位</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274589&key=qfahckuvbefdvfja&from=gy2">外星人入侵？溪边现17亿年前「诡字天书」</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274580&key=qfahckuvbefdvfja&from=gy2">陆返乡潮首日冷清 客运降5成 打工者诉苦</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274544&key=qfahckuvbefdvfja&from=gy2">华为首座境外工厂落脚法国 法媒：中共支票外交</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274592&key=qfahckuvbefdvfja&from=gy2">加国报告披露中共阻挠中共病毒疫苗样本运往加国原因</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274510&key=qfahckuvbefdvfja&from=gy2">【禁闻】上海疫情严重 当局瞒报 百姓敢怒不敢言</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1274524&key=qfahckuvbefdvfja&from=gy2">【中国禁闻】1月28日完整版</a></td></tr>
 
 </table>
 
