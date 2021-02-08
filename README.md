@@ -1,35 +1,38 @@
 ## 📩请及时收藏本站 https://git.io/ynews 以免失连</a>
 ## 自救专区： [君子不立危樯之下，赶快自救保平安 ](https://github.com/pwgy/td/blob/master/README.md)
 
-## 墙外头条热度排行榜 2021年02月07日(每日更新）
+## 墙外头条热度排行榜 2021年02月08日(每日更新）
 
  <table>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303748&key=qfahckuvbefdvfja&from=gy2">公民记者张展照片曝光 骨瘦如柴绑轮椅受审</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303747&key=qfahckuvbefdvfja&from=gy2">中国“黑户”知多少？公民被注销户口剥夺生存权</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303762&key=qfahckuvbefdvfja&from=gy2">好运来挡不住！她竟连着2天刮中头奖</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303763&key=qfahckuvbefdvfja&from=gy2">疫情太猛 把加州州长掀翻船？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303735&key=qfahckuvbefdvfja&from=gy2">钟原：习近平难回应拜登 美中窘境如何解</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303739&key=qfahckuvbefdvfja&from=gy2">习近平心知肚？今年内斗全面激化3大动力 官逼民反 兵不血刃解体中共</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303761&key=qfahckuvbefdvfja&from=gy2">男戴AirPods睡觉！醒来少一边 照X光惊：在食道里</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303764&key=qfahckuvbefdvfja&from=gy2">还债还到90岁 诚信奶奶今年可以过好年</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303751&key=qfahckuvbefdvfja&from=gy2">石铭：中共是漠视生命的恶魔</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303732&key=qfahckuvbefdvfja&from=gy2">17+1领导人视讯峰会 数国冷落中共习近平的邀请</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303744&key=qfahckuvbefdvfja&from=gy2">川普重返社交网 在Gab上载反驳弹劾信件</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303756&key=qfahckuvbefdvfja&from=gy2">布林肯首通话杨洁篪：中共须为威胁台海稳定负责</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303741&key=qfahckuvbefdvfja&from=gy2">疫下囤货！1月粮价指数升至113.3 创逾6年新高</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303724&key=qfahckuvbefdvfja&from=gy2">习近平考察“脱贫”后的贵州 运动式治国的背后</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303710&key=qfahckuvbefdvfja&from=gy2">任正非替女儿出道造势 红三代揭姚安娜被嘲原因</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303771&key=qfahckuvbefdvfja&from=gy2">郭飞雄下落不明 病妻张青向联合国求助</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303776&key=qfahckuvbefdvfja&from=gy2">陶杰：拜登继承奥巴马 国际又再次不平静</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303714&key=qfahckuvbefdvfja&from=gy2">川普若组新政党 民调：64%共和党选民会加入</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303760&key=qfahckuvbefdvfja&from=gy2">拜登政府将撤销胡塞武装为恐怖组织定性</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303725&key=qfahckuvbefdvfja&from=gy2">赖小民被处决后 中行福建分行副行长也被查</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303721&key=qfahckuvbefdvfja&from=gy2">仰光发生大规模抗议示威 缅甸军方切断网络</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303774&key=qfahckuvbefdvfja&from=gy2">李文亮去世周年 “哭墙”留言：依然只有一种声音</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303602&key=qfahckuvbefdvfja&from=gy2">李正宽：大疫汹汹 人类会不会重蹈覆辙？</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303737&key=qfahckuvbefdvfja&from=gy2">隋志：中共海外渗透一再挫败</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303730&key=qfahckuvbefdvfja&from=gy2">中国新禁令 艺人有「危害国家统一」等15行为 永久封杀</a></td></tr>
-<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1303772&key=qfahckuvbefdvfja&from=gy2">石铭：四川法院陷害八旬老人</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304132&key=qfahckuvbefdvfja&from=gy2">拜登受访称习近平骨子里没有民主 美中将激烈竞争</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304073&key=qfahckuvbefdvfja&from=gy2">陆前女记者自曝遭家暴 曾被中共吹捧引热议</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304147&key=qfahckuvbefdvfja&from=gy2">李克强逛山西年货街不戴口罩  网友：打谁的脸？（视频）</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304138&key=qfahckuvbefdvfja&from=gy2">习近平视察特种机 学者：主要针对美台</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304110&key=qfahckuvbefdvfja&from=gy2">目击者揭“杀无赦”内幕 十九年过去都发生了什么？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304144&key=qfahckuvbefdvfja&from=gy2">青海电视插播 张荣娟20年冤狱又加刑2年</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304129&key=qfahckuvbefdvfja&from=gy2">法学教授：左派刚“击败了”川普 为何仍如此怕他？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304119&key=qfahckuvbefdvfja&from=gy2">黑龙奔腾 中国火车浓烟将后面道路遮掩</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304149&key=qfahckuvbefdvfja&from=gy2">青海西宁闹市区漫天乌鸦哇哇乱叫 不祥之兆？</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304146&key=qfahckuvbefdvfja&from=gy2">有的聚集边境…非法移民疫情下获释 拜登出现首次移民危机</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304134&key=qfahckuvbefdvfja&from=gy2">分析：中共疯狂并购美企 藏有两大目的</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304099&key=qfahckuvbefdvfja&from=gy2">钟原：习近平难回应拜登 美中窘境如何解</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304095&key=qfahckuvbefdvfja&from=gy2">弹劾倒数！专家：川普不会被定罪 共和党将有路线之争</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304143&key=qfahckuvbefdvfja&from=gy2">拜登：不会让伊朗重返谈判桌而取消制裁</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304096&key=qfahckuvbefdvfja&from=gy2">哈佛权威天文学家：外星文明已来过太阳系</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304097&key=qfahckuvbefdvfja&from=gy2">华府智库：美应痛击中共3大弱点 阻止全球扩张</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304135&key=qfahckuvbefdvfja&from=gy2">哈梅内伊威胁 重返伊核协议？解除对伊制裁！</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304117&key=qfahckuvbefdvfja&from=gy2">陆记者因为爱情远嫁藏区 发五千字长文痛诉被家暴</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304094&key=qfahckuvbefdvfja&from=gy2">把鞭炮丢入下水道 安徽6岁男童惨遭炸死</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304092&key=qfahckuvbefdvfja&from=gy2">紧张！缅甸仰光10万人上街 警朝群众射击多人伤</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304090&key=qfahckuvbefdvfja&from=gy2">中国三分之一桶装水是「假水」 老板边抽烟边灌水</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304133&key=qfahckuvbefdvfja&from=gy2">旧金山两华童遭绑架 引爆社媒热议 全城大搜捕后安全归来</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304118&key=qfahckuvbefdvfja&from=gy2">许志永女友李翘楚再被拘留 被指颠覆国家政权</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304101&key=qfahckuvbefdvfja&from=gy2">【拍案惊奇】《时代》爆白宫易主真相及“总策划”</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304141&key=qfahckuvbefdvfja&from=gy2">一线采访：临近过年 农民工扬州公开讨薪</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304130&key=qfahckuvbefdvfja&from=gy2">怀州共和党正式谴责切尼 要求其立即辞职</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304109&key=qfahckuvbefdvfja&from=gy2">两大海域军演后 中共又将在黄海军演15天</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304091&key=qfahckuvbefdvfja&from=gy2">表决结果6：3！联邦最高法院 解禁加州室内宗教活动</a></td></tr>
+<tr><td colspan="2" align="left"><a href="https://xpzkndbkq.azureedge.net/?name=c1304075&key=qfahckuvbefdvfja&from=gy2">【禁闻】布林肯与杨洁篪首次通话 双方声明迥异</a></td></tr>
 
 </table>
 
